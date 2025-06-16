@@ -8,6 +8,13 @@ excuse the code, it is all vibe coded in between other things, a couple of minut
 
 ps: the unexpected realization, after seeing all the content together and the gen ai summary and interactions, is how futile it all is. these apps are a huge waste of time. there is something better to do with our time.
 
+## brainstorm new features
+1. intake from news sources i read
+2. intake from email subs
+3. call ai apis directly to generate categories and summary instead of having to drop it into notebooklm
+4. pull images
+5. embed tweets into website report instead of notebooklm note
+
 ## video demo
 none - let me know if you would like one and i may work on it.
 
