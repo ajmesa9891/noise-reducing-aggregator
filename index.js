@@ -28,9 +28,9 @@ const config = {
     scrollSettings: {
         // Delay between scrolls in ms - needed to let content load and avoid x.com rate limiting.
         // set it high, like 2,000ms, and let this run in the background.
-        scrollDelay: 2000,
+        scrollDelay: 3000,
         // Increased number of scrolls to load more content. i found 50 to be enough for everyone i follow.
-        scrollCount: 50
+        scrollCount: 30
     },
     
     // X.com URLs
