@@ -41,6 +41,8 @@ const config = {
     
     // Target profiles to scrape (usernames without @ symbol).
     targetProfiles: [
+        "profvalterlongo",
+        "ylecun",
         "bensbitesdaily",
         "alphasignalai",
         "GardnerPhD",
