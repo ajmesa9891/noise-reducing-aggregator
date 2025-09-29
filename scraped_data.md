@@ -1,103 +1,136 @@
 # rabois
 
-Today’s reading.
-[open](https://x.com/rabois/status/1968810699649421814)
+:)
+[open](https://x.com/rabois/status/1972611499932938691)
 
 ---
 
-Opendoor’s new CEO @CanadaKaz explains the company’s future:
-[open](https://x.com/rabois/status/1968656234543821237)
+"What should happen throughout a startup’s life is, the risk slowly goes down as they build. But when you raise these huge rounds, your risk shoots back up to the top, and you have to work to get it down again."
+[open](https://x.com/TurnerNovak/status/1972330406646370654)
 
 ---
 
-I sold a rental property in December using @Opendoor and it was the best experience selling a home I'd ever had. Took literally an hour of our time. A realtor wanted us to put in $100k and spend several months renovating. Opendoor offered the price the realtor thought we'd sell
-[open](https://x.com/dwlz/status/1968299141630448008)
+If you are a great engineer and have experience with AI document processing and OCR, please send me a DM - especially if you are in or are willing to relocate to Miami.
+[open](https://x.com/CanadaKaz/status/1972056001508790480)
 
 ---
 
-Good (finally).
-[open](https://x.com/rabois/status/1968084947165647004)
+Aaron Judge this season:
+
+• 53 HR
+• .330+ AVG
+• 10+ fWAR
+• 206 wRC+
+
+Here is the full list of all players in MLB history to reach these numbers in a single season:
+
+- Babe Ruth
+
+That’s it. That’s the list.
+[open](https://x.com/yankeesvision/status/1972001659565003056)
 
 ---
 
-I built Opendoor’s initial product for agents and I regret it. We were afraid of agents’ collective action against us (shady agents would exclude homes from their clients just to spite us), but should have focused on building the best consumer product.
-[open](https://x.com/evancharles/status/1967991908040597986)
+Players in baseball history to lead MLB in batting average and hit at least 53 HR:
+
+2025 Aaron Judge
+
+That’s it. The most home runs by an MLB batting champion in the history of the sport
+[open](https://x.com/YankeeWRLD/status/1971990713371185312)
 
 ---
 
-$OPEN ARMY let’s come up with a slogan …
+We are going to have some *insanely* awesome talent join @Opendoor soon.  They are leaving big tech companies because they believe in our mission that home ownership matters. 
 
-- Opendoor dreams to keys 
-- Opendoor you dream we deliver 
-- Opendoor dream it live it 
-- Opendoor delivers your dreams 
-- Opendoor  makes dream come true 
-- Opendoor unlocks dreams 
-- Opendoor lets live a little 
-
-@ericjackson @rabois
-[open](https://x.com/ScottFindlay73/status/1967570549313335306)
+These are the type of people that folks would agree are the best people in the world at what they do.
+[open](https://x.com/CanadaKaz/status/1971951369453293580)
 
 ---
 
-Keith Rabois on why they chose Kaz Nejatian as CEO $OPEN
-
-"We needed someone with product innovation.. he was not only serving as the COO of Shopify but he also ran the product team 
-
-We needed someone who understands how to innovate a product, Opendoor hasn't innovated a product
-[open](https://x.com/MollySOShea/status/1967601227400663158)
+Agreed.
+[open](https://x.com/rabois/status/1971913678707740762)
 
 ---
 
-Kathy Hochul is a political and moral coward.
-
-She has surrendered New York to socialism because she's too inept to defend her political convictions.
-
-Elise Stefanik: save us from this nightmare
-[open](https://x.com/ShabbosK/status/1967383815728529850)
+Unique interview where you can continue the conversation w me when you finish.
+[open](https://x.com/rabois/status/1971589431317647441)
 
 ---
 
-Legendary. @rabois 
+What a moronic anti-American PR stunt. 
 
-"The company has a new leadership team.. most importantly, a new CEO (@CanadaKaz). 
+Ro Khanna would have rewarded Osama Bin Laden a national medal of freedom and Al Qaeda a state if it helped kowtow to his petulant foreign infiltrated democrat base. 
 
-99% of everything that matters is the CEO.
-
-The most important lesson for me over the last 25 years is if you have the right CEO, things that people believe to be impossible
-[open](https://x.com/MollySOShea/status/1967584705760346441)
+Hostage-taking-and-murder-incentivizing-terror supporting panderer
+[open](https://x.com/wolfejosh/status/1971384784380363201)
 
 ---
 
-Reflecting on key lessons from @tryramp: Seek spiky talent (exceptional in a few areas, ok w/ weaknesses), promote inside > hire outside, and obsess over craft. 
-
-Skip “well-rounded” — bet on prodigies early. Great convo w/ @vkhosla & @rabois, hope it’s useful to other founders.
-[open](https://x.com/eglyman/status/1966972880228675892)
+Warned you about this.
+[open](https://x.com/rabois/status/1971312694243586316)
 
 ---
 
-Today’s (re) reading.
-[open](https://x.com/rabois/status/1966860805078716451)
+Discusses many of my favorite topics)
+[open](https://x.com/rabois/status/1971244849832788419)
 
 ---
 
-2017 Inteview that articulates  most of my views:
-[open](https://x.com/rabois/status/1966824934547542308)
+Analyzing my investments since rejoining KV.
+[open](https://x.com/rabois/status/1971198078972723488)
 
 ---
 
-Yes.  I’ll be in the office first thing Monday morning and first thing every Monday morning.
-[open](https://x.com/CanadaKaz/status/1966524408056414638)
+Interesting analysis of the entirely new investments I have led since Jan 2024 (excludes 3-4 new lead rounds for prior co’s).
+[open](https://x.com/rabois/status/1970942314685268097)
 
 ---
 
-What @rabois calls barrels, Slootman calls drivers. Critical to hire as many of this archetype as possible.
-[open](https://x.com/gokulr/status/1966581874215583816)
+"The most painful thing one can do, other than having a healthcare mess in your life or family's life, is sell a home."
+
+Keith Rabois, Board Chair $OPEN
+
+"On average, in the United States, homes sit on the market for, like, 80 days. And even after you get an offer, 20% of those
+[open](https://x.com/MollySOShea/status/1970111355173953794)
 
 ---
 
-Heads up Open army: @rabois will join us @SquawkStreet 10 am
-[open](https://x.com/SaraEisen/status/1966498478118273087)
+Yep.
+[open](https://x.com/rabois/status/1969808021846131045)
+
+---
+
+Keith Rabois is one of the best communicators I’ve ever interviewed.
+
+Every line he says could be quoted. 
+
+He is sharp. Passionate. Uses specifics. Gives recognition. & invents frameworks for better understanding.
+
+Here are 8 principles that make @rabois a GREAT communicator
+[open](https://x.com/MollySOShea/status/1969378722773156112)
+
+---
+
+Narrative violation.
+[open](https://x.com/rabois/status/1969134088322724319)
+
+---
+
+Top 15 Quotes from Keith Rabois
+
+“What you want to find is someone who has a non-zero chance of changing an industry or the world. That's it. It's really that simple.”
+
+“You don't wanna be the best in the world at what you do. You wanna be the only one who does what you do.”
+[open](https://x.com/MollySOShea/status/1969060436072112463)
+
+---
+
+BREAKING: Keith Rabois Returns. Lessons from $OPEN, PayPal Mafia, & Investing
+
+“You don’t want to be the best in the world at what you do. You want to be the only one who does what you do.”
+
+Opendoor ( $OPEN) co-founder & Board Chair, Managing Director at Khosla Ventures, a core
+[open](https://x.com/MollySOShea/status/1969037390808506639)
 
 ---
 
@@ -105,60 +138,76 @@ Heads up Open army: @rabois will join us @SquawkStreet 10 am
 
 # astupple
 
-There is an extraordinary difference between boundless and very, very large.
-
-Infinity seems like it just adds a few more very’s to “very large,” but it’s actually a whole new game.
-
-Freedom isn’t a side benefit, it’s ground conditions.
-[open](https://x.com/astupple/status/1968739996363300923)
+The institute grows stronger
+[open](https://x.com/sutherlandphys/status/1971576056592359872)
 
 ---
 
-All the hand-wringing about getting kids to learn this or that, but almost no concern that kids will learn to avoid your whole agenda, to placate and appease or outright rebel, to construct a life centered on inauthenticity.
-[open](https://x.com/astupple/status/1968668894261866596)
+“But traditional school worked for me.”
+
+No, you survived it.
+
+Imagine what you could’ve done if your spark wasn’t dimmed for 13 years.
+[open](https://x.com/flowidealism/status/1971304459503386658)
 
 ---
 
-Why is nearly every Disney movie a tale of self-discovery? Because kids grow up in a world that values inauthenticity, in living for the approval of others.
-[open](https://x.com/astupple/status/1968668896698720526)
+I am delighted to learn about the creation of the "Conjecture Institute" https://conjectureinstitute.org
+whose mission is to fund fundamental research across many domains, including physics, epistemology and  AGI.
+A detailed description of their mission can be found in this interview
+[open](https://x.com/yudapearl/status/1970912103960924400)
 
 ---
 
-Reasons can't be detected via the senses, so an empiricist culture such as ours downplays reasons in favor of behaviors.
-[open](https://x.com/ChipkinLogan/status/1968055974218043622)
+When it's made, the superintelligence will know as much as we do, because we can't program knowledge into it that we don't have.
+
+So, to get dangerous, it'll have to discovery new stuff.
+
+To do that, it MUST abandon much knowledge (learning means replacing worse theories with
+[open](https://x.com/astupple/status/1970912037980029197)
 
 ---
 
-Force can produce the appearance of moral alignment while obscuring resentment and distrust.
+We've uploaded Conjecture Institute Fellow @dela3499's video to our YouTube channel:
 
-And the forced can sometimes arrive at alignment despite your best efforts.
-
-Freedom is necessary to learn *why* to align.
-[open](https://x.com/astupple/status/1968050700182765851)
+https://youtube.com/watch?v=3r6FIPcHCkU…
+[open](https://x.com/ConjectureInst/status/1970835678314574328)
 
 ---
 
-If it wasn't for social media I wouldn't have known the truth of what Charlie Kirk actually said.
-[open](https://x.com/leoalexart/status/1968003787081351253)
+Remember kids are living life, not simply preparing for it.
+[open](https://x.com/chrisman/status/1970630662542762496)
 
 ---
 
-People talking and writing to each other is good, but only to a point, then it becomes not just bad but existentially dangerous.
-
-(Note - there have always been private parties tweaking content and distribution for profit.)
-[open](https://x.com/astupple/status/1968003459426422844)
+See Pessimism.
+[open](https://x.com/astupple/status/1970554683346612449)
 
 ---
 
-Curious if anyone finds this kind of break down useful or has ideas of how to improve it.
-[open](https://x.com/astupple/status/1966536808033898927)
+Would you rather a President who says  (without enough evidence) that pregnant women shouldn't take Tylenol or a president who says (in line with the research)that  birthing people can still take Tylenol.  Those are your choices.
+[open](https://x.com/pescami/status/1970544982130835538)
 
 ---
 
-The absence of explanation of how these words connect to the issue implies that such an absence is warranted because it is self-evidently true.
+Check out the final chapter of Conjecture Institute Fellow @arjunkhemani's documentary! 
 
-Those who question the self-evidently true must be degenerate in some way.
-[open](https://x.com/astupple/status/1966536610935128222)
+Script cowritten by Arjun and Conjecture Institute President @ChipkinLogan.
+[open](https://x.com/ConjectureInst/status/1969465294620971058)
+
+---
+
+The FCC means we need someone to figure out what is "the public interest," and someone to figure out how to select that expert, and then someone to surveil users to look for violations, and then someone to charge alleged violators, and then someone to adjudicate, and then someone
+[open](https://x.com/astupple/status/1969144637265752513)
+
+---
+
+Free speech is much simpler concept in the context of property rights.
+
+You can make things you own say anything you want them to say.
+
+Auction off “the airwaves,” problem solved.
+[open](https://x.com/astupple/status/1969138324007752023)
 
 ---
 
@@ -166,159 +215,265 @@ Those who question the self-evidently true must be degenerate in some way.
 
 # profvalterlongo
 
-No content found for this user.
+Dr. Valter Longo’s bestselling The Longevity Diet is now available in Vietnamese.
+
+All author proceeds go to Create Cures Foundation to support research & education on affordable therapies for major diseases.
+
+ clinic@createcures.org
+
+#ProfValterLongo #TheLongevityDiet
+[open](https://x.com/ProfValterLongo/status/1970866041443266771)
+
+---
+
+THE SKINNY CONFIDENTIAL | Skipping Breakfast & Fasting Myths – With Professor Valter Longo
+
+Full episode:
+https://youtube.com/watch?v=LNgDg8OButI…
+
+For more information and nutritional guidance, contact the Create Cures Foundation at clinic@createcures.org
+
+#ProfValterLongo #TheSkinnyConfidential
+[open](https://x.com/ProfValterLongo/status/1970058710085955947)
+
+---
 
 ---
 
 # ylecun
 
-At #VivaTech2025, CDS Prof @ylecun spoke with @Melissahei about world models, reasoning machines, and V-JEPA 2: a 1.2B-param system trained on 1M+ hours of video.
+ Meta reveals a massive inefficiency in AI’s reasoning process and gives a solution.
 
-Chat: https://youtube.com/live/uwBs0Rd0W2o…
+Large language models keep redoing the same work inside long chains of thought.
 
-More info: https://ai.meta.com/vjepa/
-
-CDS' blog recently covered the V-JEPA 2 paper
-[open](https://x.com/NYUDataScience/status/1968016057115017292)
+For example, when adding fractions with different denominators, the model often re explains finding a common
+[open](https://x.com/rohanpaul_ai/status/1972271423734292585)
 
 ---
 
-Thank you so much to everyone for this wonderful dinner! I’m truly grateful to Harvard University CMSA for this amazing experience. It makes me so happy to see the Math & AI community growing, can’t wait to see all the incredible things these brilliant minds will create together
-[open](https://x.com/evelovesolive/status/1968128012320378930)
+Republicans would rather shut down the government than help millions of Americans afford health care. This article tells some of their stories, and is a good reminder of what’s at stake.
+[open](https://x.com/BarackObama/status/1972330745449284044)
 
 ---
 
-This aged well.
-[open](https://x.com/GavinNewsom/status/1968525500432949424)
+60% of CS PhDs in the US are not American.
+53% of CS Masters grads in the US are not American.
+BigTech cos have <15% employees on H-1B.
+
+BigTech hiring isn't necessarily biased against Americans; most Americans just don't study advanced CS!
+[open](https://x.com/deedydas/status/1971780213504987458)
 
 ---
 
-"this is the only time it's happened in yours or my lifetime, which is that we're on the cusp of a recession and the cause is not some external factor. It's not a war, it's not an oil price change, it's not the weather. It's 1600 Pennsylvania Avenue. It's Trump and it's Trumpism"
-[open](https://x.com/JustinWolfers/status/1967993437141041254)
+Why would the US Justice Department remove a study from its website last week that concluded that far-right extremists have killed far more Americans than any other domestic terror group?  .
+
+The now-archived report, titled "What National Institute of Justice Research Tells Us
+[open](https://x.com/katiecouric/status/1971288650462920765)
 
 ---
 
- @steeve, Founder @zml_ai: Towards Unlimited Contexts: Faster-than-GPU Sparse Logarithmic Attention on CPU
-[open](https://x.com/yann_eu/status/1968726691485990998)
+Blah blah blah...regulatory capture...blah blah blah...please restrict competition daddy government and help us build the Culture that we control...also I'll conveniently forget privacy, fine tuning, overcoming censorship, self determination, the last twenty years of tech
+[open](https://x.com/Dan_Jeffries1/status/1970392722499371128)
 
 ---
 
-After years of complaining about cancel culture, the current administration has taken it to a new and dangerous level by routinely threatening regulatory action against media companies unless they muzzle or fire reporters and commentators it doesn’t like.
-[open](https://x.com/BarackObama/status/1968679167286763678)
+New from Meta FAIR: Code World Model (CWM), a 32B-parameter research model designed to explore how world models can transform code generation and reasoning about code.
+
+We believe in advancing research in world modeling and are sharing CWM under a research license to help empower
+[open](https://x.com/AIatMeta/status/1970963571753222319)
 
 ---
 
-Meta just made training AI agents 25x faster.
+Paving the way for unlimited context windows.
 
-This is a breakthrough for robotics and complex planning. 
-
-Meta's FAIR open sourced a new method called Scalable Option Learning. It trains a specialized agent at the scale previously seen only with LLMs.
-
-Here's how it works:
-
-The
-[open](https://x.com/JacksonAtkinsX/status/1967284333678350342)
+Introducing @zml_ai /attnd: sparse logarithmic attention, on CPU, over UDP, faster than GPU.
+[open](https://x.com/steeve/status/1971126773204279495)
 
 ---
 
-This is journalist Karen Attiah, the only Black opinion columnist at the Washington Post. She was just fired for sharing a statement made by Charlie Kirk insulting Black women.
-
-RETWEET if you stand with @KarenAttiah!
-[open](https://x.com/DisavowTrump20/status/1967629055974576238)
+The fact that Indian Americans are America's most elite ethnic group just utterly breaks the brains of people who think in terms of race. They look over at India and say "That country is so poor, how can these people here be so competent?". They can't understand selection.
+[open](https://x.com/Noahpinion/status/1970537612344729980)
 
 ---
 
-We have released small-scale reasoning models MobileLLM-R1 (0.14B, 0.35B, 0.95B) that are trained from scratch with just 4.2T pre-training tokens (10% of Qwen3), while its reasoning performance is on-par with Qwen3-0.6B. 
+REPUBLICANS: Trump wasn’t involved in Kimmel getting cancelled.
 
-Thanks the three core contributors for their great work!
-[open](https://x.com/tydsh/status/1967476530826854674)
-
----
-
-I don't understand why we keep having this conversation when the data is clear.
-[open](https://x.com/ZhugeEX/status/1967220343262851555)
+TRUMP: I was involved and I’m gonna try again.
+[open](https://x.com/micah_erfan/status/1970699119082529278)
 
 ---
 
-New @AIatMeta  builds a vision language world model that turns videos into text plans and reasons to pick better actions. 
+So just as the US nukes the cap-exempt H-1B program that universities & research institutes rely on, our largest global competitor is going the other direction:
 
-27% higher Elo for system-2 planning over system-1.
-
-The gap it tackles, agents must predict how actions change the world rather than only label frames.
-[open](https://x.com/rohanpaul_ai/status/1967197438701408764)
+China is making it much easier for young STEM talent to move there.
+[open](https://x.com/AlecStapp/status/1970864805608092048)
 
 ---
 
-We upgraded our workbenches machines to ThreadRippers because we needed more PCI lanes to the NIC.
-If you come to see my talk @aiDotEngineer on Sep 24th, you might get why
-[open](https://x.com/steeve/status/1966828921829400752)
+We trained the whole stack. 𝗣𝗿𝗲𝘁𝗿𝗮𝗶𝗻. 𝗦𝗙𝗧. 𝗥𝗟.
+
+𝗢𝗽𝗲𝗻 𝘄𝗲𝗶𝗴𝗵𝘁𝘀. 𝗢𝗽𝗲𝗻 𝗺𝗲𝘁𝗵𝗼𝗱𝘀. 𝗢𝗽𝗲𝗻 𝘀𝗰𝗶𝗲𝗻𝗰𝗲.
+
+From tokens to traces. From guesses to grounded. 𝗖𝗼𝗱𝗲 𝗪𝗼𝗿𝗹𝗱 𝗠𝗼𝗱𝗲𝗹 is here
+
+50+ pages Report. Ckpts. Code.
+https://ai.meta.com/research/publications/cwm-an-open-weights-llm-for-research-on-code-generation-with-world-models/…
+[open](https://x.com/KunhaoZ/status/1970974391736598926)
 
 ---
 
-It’s not the video games.
-[open](https://x.com/SpencerHakimian/status/1967221165329690743)
+I fear that we will not have an election in 2028 -- I really mean that in the core of my soul -- unless we wake up to what's happening in this country.
+[open](https://x.com/GavinNewsom/status/1970715257833431281)
 
 ---
 
- This stat is insane.
-
-CNews will never talk about it.
-
-But basically, the vast majority of US terrorism is far-right …
-[open](https://x.com/ralifromparis/status/1966808222884417933)
+She confirmed that her boss wanted to use state power for his personal vendettas.
+[open](https://x.com/Kasparov63/status/1970337862437532024)
 
 ---
 
-A data-driven look at political violence in America. “A separate tally by the Anti-Defamation League, an advocacy group, shows that 76% of extremist-related murders over the past decade were committed by those on the right. Such tallies, however, depend on how extremism is
-[open](https://x.com/shashj/status/1966884341562175868)
+The fiscal impact of the H-1B program is a huge net positive, because visa holders are:
+
+- young
+- high-earning
+- have few dependents
+- cannot be unemployed
+- unlikely to qualify for government aid
+[open](https://x.com/AlecStapp/status/1970906075298922803)
 
 ---
 
-In the year since LRMs ("reasoning models") hit the scene, we have been trying to understand, analyze and demystify them.. Here are our efforts to date--conveniently all in one place
-
-(First..) Evaluation of LRMs on Planning 
-https://arxiv.org/abs/2409.13373 (9/24)&
-[open](https://x.com/rao2z/status/1966969679739768982)
+Worldwide first
+[open](https://x.com/steeve/status/1970886998073499843)
 
 ---
 
-I have something to say about the Charlie Kirk murder.
-[open](https://x.com/IAmPoliticsGirl/status/1966592658933174501)
+Dear American student friends,
+                                                                          
+A new journey begins today: a program that brings you to France and strengthens the timeless friendship between our two nations: the Lafayette Fellowship!
+
+For young people,
+[open](https://x.com/EmmanuelMacron/status/1970559314679972338)
 
 ---
 
-Paper fresh of the press: The Illusion of Diminishing Returns: Measuring Long Horizon Execution in LLMs.
+The time has come for Agent Engineering.
 
-Are small models the future of agentic AI? Is scaling LLM compute not worth the cost due to diminishing returns? Are autoregressive LLMs doomed, and thinking an illusion?
-[open](https://x.com/ShashwatGoel7/status/1966527903568637972)
-
----
-
-Daily reminder that gun deaths are completely a choice. 
-
-Nobody dies from guns in the rest of the functioning world. 
-
-It’s like dying from a fever. 
-
-An ancient plague that we have solved as a species and moved on from. 
-
-Except if you live in the United States.
-[open](https://x.com/SpencerHakimian/status/1966567971955826907)
+And if you do this right, you will see how @ylecun is entirely correct about LLMs.
+[open](https://x.com/pentagoniac/status/1970677260341645562)
 
 ---
 
-Evolution of the share of total income held by the richest 1% in different countries over the past two centuries. France appears as one of the countries where the issue of inequalities is particularly (very very) present in the public debate, but where they experience a
-[open](https://x.com/KaplanBen_Fr/status/1966578949431152796)
+new research from Meta FAIR: Code World Model (CWM), a 32B research model
+
+we encourage the research community to research this open-weight model!
+
+pass@1 evals, for the curious:
+
+65.8 % on SWE-bench Verified
+68.6 % on LiveCodeBench
+96.6 % on Math-500
+76.0 % on AIME 2024
+
+
+[open](https://x.com/alexandr_wang/status/1970973317227225433)
 
 ---
 
-CDS founding director & Meta's Chief AI Scientist @ylecun introduces V‑JEPA 2, a self-supervised video model that learns what matters by ignoring irrelevant details — outperforming prior systems on motion prediction, action anticipation, + robot control.
-[open](https://x.com/NYUDataScience/status/1966578534916252112)
+Code World Model: producing code by imagining the effect of executing instructions and planning instructions that produce the desired effect.
+[open](https://x.com/ylecun/status/1970967341052854748)
 
 ---
 
-No content found
-[open](https://x.com/ylecun/status/1966752561123266979)
+First they ignore you, then they laugh at you, then they fight you, then you win!
+[open](https://x.com/ClementDelangue/status/1970164929409040679)
+
+---
+
+“Free as in Freedom, not free beer.”
+
+HT @ylecun
+[open](https://x.com/pentagoniac/status/1970526730780848515)
+
+---
+
+Serious scholars have examined what happens when we change the number of H1-B visas issued.
+
+Cities that get more H1-B immigrants subsequently see the wages of natives *rise* substantially.
+
+Skilled immigrants bring new ideas, fill labor shortages and  make us all more
+[open](https://x.com/JustinWolfers/status/1970136725931323848)
+
+---
+
+If you want to hurt American competitiveness then this is what you would do.
+[open](https://x.com/SuryaGanguli/status/1969914985259368695)
+
+---
+
+The White House may call it deregulation, but in reality, it's replacing written rules with unwritten rules. (Rule 1: "Don't upset the President.") It's swapping transparent, tested rules for secret, shifting ones. One set serves the public interest, the other reflects the
+[open](https://x.com/JustinWolfers/status/1969520980725748097)
+
+---
+
+Let us stop for a moment & consider how Trump damages the US:
+1. He isolates the US economically & politically.
+2. He has already ended the rule of law,
+3. as well as the freedom of the media.
+4. He has devastated US science &
+5. tries to further undermine bad US health. /1
+[open](https://x.com/anders_aslund/status/1969840110775747024)
+
+---
+
+We are fast becoming a banana republic, with two standards of justice. If you oppose the leader, you go to jail just for speech. If you're a loyalist, you get immunity for your crimes.
+
+That's what happens in Iran - not the United States. This is a decision moment for America.
+[open](https://x.com/ChrisMurphyCT/status/1969760929492484578)
+
+---
+
+Interesting! Hai Huang, @ylecun , and @randall_balestr have just proposed LLM-JEPA.
+
+It's the first JEPA-style training framework for language models, bridging the gap between vision’s embedding-space objectives and NLP’s generative ones.
+
+Results:
+
+- Outperforms standard LLM
+[open](https://x.com/jiqizhixin/status/1969198824976757228)
+
+---
+
+That's right, we released our first iteration of JEPAs for LLMs: https://arxiv.org/abs/2509.14252v1…
+And yes, the code is public! Learning by latent space prediction has revolutionized vision models, and it will revolutionize LLMs! 
+One small step for JEPAs, one giant leap for LLMs
+[open](https://x.com/randall_balestr/status/1969283010982744133)
+
+---
+
+ICE detains man needing emergency surgery for brain tumor—for using a payphone without inserting 35¢ in 1999.
+
+Family only found out where he was when received bill from hospital emergency room—after 5 days in detention.
+
+He has a valid green card—having immigrated 30 years ago
+[open](https://x.com/LongTimeHistory/status/1969058837387780118)
+
+---
+
+RIP U.S. innovation.  
+Between gutting the H-1B program, purging US scientists from civil service, slashing research grants, and disappearing international students off the streets, our government has made a conscious decision to kill America's role as a global leader in science https://x.com/SpeakSamuel/st/SpeakSamuel/status/1969106759974310271…
+[open](https://x.com/crampell/status/1969125807613231419)
+
+---
+
+ Our latest paper just came out in Science, where we report a simple, historical pattern: 
+
+From 1980 to 2020, Republican lawmakers consistently funded science at a higher level than their Democratic counterparts. 
+
+four years in the making. Led by @zfurnas 
+
+thread 1/n
+[open](https://x.com/dashunwang/status/1969033088589000704)
 
 ---
 
@@ -338,109 +493,279 @@ No content found for this user.
 
 # GardnerPhD
 
-UPFs in Schools
-
-Join me + other school food experts on Sept 17 @ 1 pm ET for “Reducing Ultra-Processed Meals: The Next Chapter in School Food” - the second webinar in the three-part Healthy School Food for Thought series hosted by @ChefAnnFnd. Register: https://bit.ly/4c3dOTY
-[open](https://x.com/GardnerPhD/status/1966531429329764355)
-
----
+No content found for this user.
 
 ---
 
 # SeanPaulSpencer
 
-No content found for this user.
+Stanford Medicine experts are using discoveries about the intestinal microbiome and psychology to help patients with unexplained symptoms reset the relationship between their guts and their brains.
+[open](https://x.com/StanfordMed/status/1971377153892896783)
+
+---
+
+Stanford Medicine researchers are turning discoveries about diet and health into action -- making nutrition central to medical education and patient care.
+[open](https://x.com/StanfordMed/status/1972460818076749930)
+
+---
+
+Anyone who has worked with germ-free mice knows the struggle of dealing with these notoriously poor breeders. Colony maintenance is a huge pain. But WHY? 
+
+Happy to share our paper in @CellHostMicrobe that begins to unpack this long-standing mystery!
+[open](https://x.com/neuroeldin/status/1971272536668487920)
+
+---
+
+Multicenter RCT in @LancetGastroHep:
+ FMT (with live microbes) prevents recurrent C. diff far better than fecal filtrates. Live microbes matter to restore #microbiome.
+Thanks to Dina Kao (@UAlberta) & Sebastian Schmidt (@Pharmabiotic), and whole team. 
+ https://authors.elsevier.com/c/1lphg8nByrGWIo…
+[open](https://x.com/JensWalter15/status/1970530135951483109)
+
+---
 
 ---
 
 # mike_lustgarten
 
-Now live on YT!
+Coming to YT tomorrow, tune in!
 
-https://youtube.com/watch?v=M6t_b6DuWIA…
-[open](https://x.com/mike_lustgarten/status/1967199015654821932)
-
----
-
-Some insight from me in the article...
-[open](https://x.com/mike_lustgarten/status/1968721908028829980)
+Or, watch it ad-free: https://patreon.com/posts/new-video-139302902?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link…
+[open](https://x.com/mike_lustgarten/status/1971928126768009576)
 
 ---
 
-Blood Test #6 in 2025 Results Are In!
+Blood Test #6 Correlations With Diet Are In!
+[open](https://x.com/mike_lustgarten/status/1972417509489062337)
+
+---
+
+Interesting study-despite LDL = 421 mg/dL, ApoB wasn't crazy high (96 mg/d)
+
+One reason might include relatively low levels of more atherogenic lipoproteins, VLDL and Lp(a)
+
+I hope that future studies will evaluate associations for the percentage of ApoB from LDL vs non-LDL
+[open](https://x.com/mike_lustgarten/status/1972288533130891664)
+
+---
+
+Now live on YouTube!
+
+https://youtube.com/watch?v=DjtG9rODWLo&t=1s…
+[open](https://x.com/mike_lustgarten/status/1972287462987956501)
+
+---
+
+Japanese researchers test pioneering drug to regrow teeth
+[open](https://x.com/mike_lustgarten/status/1972109262563471386)
+
+---
+
+Genetic enhancement: an avenue to combat aging-related diseases
+[open](https://x.com/mike_lustgarten/status/1972109000608305158)
+
+---
+
+Motor Neuron Loss In Aging And Amyotrophic Lateral Sclerosis: Different Fuse Lengths, Same Explosion
+[open](https://x.com/mike_lustgarten/status/1972040575789813933)
+
+---
+
+Antibacterial and antibiofilm activities of docosahexaenoic acid (DHA) and eicosapentaenoic acid (EPA) against periodontopathic bacteria
+
+https://sciencedirect.com/science/article/pii/S0882401016301012…
+[open](https://x.com/mike_lustgarten/status/1971985405051654256)
+
+---
+
+ALS is the extreme case, but motor unit loss is a Hallmark of Aging
+
+What's the underlying mechanism?
+[open](https://x.com/mike_lustgarten/status/1971919561957224712)
+
+---
+
+The Role of Sphingomyelin and Ceramide in Motor Neuron Diseases
+[open](https://x.com/mike_lustgarten/status/1971927896865558582)
+
+---
+
+Gut microbiota indole-3-propionic acid mediates neuroprotective effect... https://sciencedirect.com/science/article/pii/S0261561423001073…
+[open](https://x.com/mike_lustgarten/status/1971732514428617008)
+
+---
+
+"Our study demonstrates that some multi-omics scores for inflammation markers may characterize important inflammation burden for an individual beyond those represented by blood biomarkers and improve our prediction capability for the aging process and lifespan."
+[open](https://x.com/mike_lustgarten/status/1971727282600288615)
+
+---
+
+They may seem esoteric, but expect to hear a lot about lysophosphatidylcholines and health-related outcomes over the next few years
+
+Plasma Lysophosphatidylcholine Levels Correlate with Prognosis and Immunotherapy Response in Squamous Cell Carcinoma
+[open](https://x.com/mike_lustgarten/status/1971723029245055423)
+
+---
+
+Impact Of Nicotinamide (Not NMN) On NAD
+[open](https://x.com/mike_lustgarten/status/1971674177829773388)
+
+---
+
+New video!
+
+Phosphatidylcholines Are Biomarkers Of The Omega-3 Index https://patreon.com/posts/new-video-139302902?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link…
+[open](https://x.com/mike_lustgarten/status/1971380518643269733)
+
+---
+
+"The microbiota extends the reproductive lifespan of mice by safeguarding the ovarian reserve" http://spkl.io/6012AT13n
+
+@cellhostmicrobe 
+@PittDeptofMed Eldin Jašarević & colleagues
+[open](https://x.com/CellPressNews/status/1971243297902350392)
+
+---
+
+This morning's HRV-RHR (69-41)
+
+Also, 4 Days On 8-Sleep vs 4 On The Air Mattress: https://patreon.com/posts/todays-data-9-25-139684880?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link…
+[open](https://x.com/mike_lustgarten/status/1971193824572752034)
+
+---
+
+That there isn't a menu to see how much everything costs upfront, insurance or not
+
+But also, dealing with insurance companies (not just health)
+[open](https://x.com/mike_lustgarten/status/1970998407578968080)
+
+---
+
+The strongest evidence for a Universe before the Big Bang
+
+Louder, for those of you in the back who've been willfully covering your ears: the Big Bang wasn't the beginning, and we have some damn good evidence supporting that conclusion!
+[open](https://x.com/StartsWithABang/status/1970841518102712620)
+
+---
+
+Cardiorespiratory fitness is highly associated with reduced mortality risk.
+
+Compared to the least fit, the top 2% in fitness had 70-80% lower risk across all ages, even in very old age.
+[open](https://x.com/Mangan150/status/1970817177889743194)
+
+---
+
+youtube.com
+[open](https://x.com/mike_lustgarten/status/1970820493293854818)
+
+---
+
+Nicotinamide for Skin Cancer Chemoprevention
+[open](https://x.com/mike_lustgarten/status/1970632766082740687)
+
+---
+
+People are not really cognisant of the decline of infrared light we've experienced in the last 100 years.  Eventually a threshold is reached: 
+1) 50% to 93% of our time indoors
+2) Regular glass windows to Low -E glass windows which block NIR
+3) Regular light bulbs to LEDs (which
+[open](https://x.com/RogerSeheult/status/1970342125993918636)
+
+---
+
+"Despite being a strong predictor of mortality, VO2max is not causally associated with T2D or longevity."
+[open](https://x.com/mike_lustgarten/status/1970267543370903715)
+
+---
+
+Sunlight is a likely part of the story, but if I had to bet, UPF intake by pregnant mothers would be more likely
+[open](https://x.com/mike_lustgarten/status/1970264366466351601)
+
+---
+
+Lack of Sunlight is not a wild theory.  It's well documented that the time spent outside has dropped at the same time that Autism has increased.  Then there's this:
+https://sciencedirect.com/science/article/abs/pii/S0306987717306631…
+[open](https://x.com/RogerSeheult/status/1970252163214676065)
+
+---
+
+Full results are in (September 16th test)!
 
 https://patreon.com/posts/blood-test-6-in-139140824?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link…
-[open](https://x.com/mike_lustgarten/status/1968470873918071188)
+[open](https://x.com/mike_lustgarten/status/1970231549837857024)
 
 ---
 
-Hot off the presses (note the author list)!
-
-METABOLOMIC SIGNATURES OF EXTREME OLD AGE: FINDINGS FROM THE NEW ENGLAND CENTENARIAN STUDY
-[open](https://x.com/mike_lustgarten/status/1968030849460531273)
+Oral Bacteria May Trigger Parkinson’s Disease - https://neurosciencenews.com/oral-bacteria-parkinsons-disease-29720/… via @neurosciencenew
+[open](https://x.com/mike_lustgarten/status/1970211069927829757)
 
 ---
 
-8/ Want to join? Play here →
-[open](https://x.com/LongevityWorldC/status/1967857152330174811)
+Dietary Choline Intake and Risk of Alzheimer’s Dementia in Older Adults
+
+https://sciencedirect.com/science/article/pii/S0022316625002974…
+[open](https://x.com/mike_lustgarten/status/1969916131634040937)
 
 ---
 
-Forget Football: The Longevity World Cup Has Launched
-[open](https://x.com/LongevityWorldC/status/1967855496137941280)
+New Eye Drops Sharpen Aging Eyes in Just One Hour
+[open](https://x.com/mike_lustgarten/status/1969906926260473923)
 
 ---
 
-p-tau 217 as a stand-alone blood marker establishes risk of Alzheimer's disease in cognitively unimpaired individuals (again)
-[open](https://x.com/EricTopol/status/1967626378234486818)
+Now live on YT!
 
----
-
-Could be the best body composition I've ever seen on an 80-yr old
-[open](https://x.com/mike_lustgarten/status/1967563824309182875)
-
----
-
-No content found
-[open](https://x.com/mike_lustgarten/status/1967395111316443603)
-
----
-
-Allogeneic Mesenchymal Stem Cells Ameliorate Aging Frailty: A Phase II Randomized, Double-Blind, Placebo-Controlled Clinical Trial
-[open](https://x.com/mike_lustgarten/status/1967352776218075325)
-
----
-
-Here’s my write up for one way of using ChatGPT Plus to analyze food and blood pressure. https://open.substack.com/pub/longhealth/p/using-chatgpt-to-correlate-food-and?r=5y7vnz&utm_medium=ios…
-[open](https://x.com/michael_spivey/status/1967296902187381058)
+https://youtube.com/watch?v=99cOA2SRNuc&t=1s…
+[open](https://x.com/mike_lustgarten/status/1969748089473843618)
 
 ---
 
 Coming to YouTube tomorrow, tune in!
-[open](https://x.com/mike_lustgarten/status/1967056314171011174)
+
+Or, watch it ad-free: https://patreon.com/posts/new-video-138867878?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link…
+[open](https://x.com/mike_lustgarten/status/1969522933316903201)
 
 ---
 
-introducing Philipp Schmeing
-3rd spot @longevityworldcup
-1st spot in millenials league
-chronological age: 34
-phenoAge: 15.2
-[open](https://x.com/nopara73/status/1966884400232083771)
+No content found
+[open](https://x.com/mike_lustgarten/status/1969522353609560542)
 
 ---
 
-Maybe the paid versions are better, but the free versions of ChatGPt, Gemini, Perplexity, Grok can't run this straightforward analysis
-[open](https://x.com/mike_lustgarten/status/1966867566426812513)
+No content found
+[open](https://x.com/mike_lustgarten/status/1969519627463000241)
 
 ---
 
-Nice!
+Forget Football: The Longevity World Cup Has Launched (Prize Money in Bitcoin)
 
-For those who want to get one, too (or other CAODT merch): 
+by nopara73 in ~Stacker_Sports
+389 sats and 0 comments so far
+[open](https://x.com/stacker_news/status/1969023688491008125)
 
-https://teepublic.com/t-shirt/74216922-conquer-aging-or-die-trying?store_id=3806714…
-[open](https://x.com/mike_lustgarten/status/1966484342651105422)
+---
+
+New video!
+
+https://patreon.com/posts/new-video-138867878?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link…
+[open](https://x.com/mike_lustgarten/status/1969193242068447292)
+
+---
+
+Skin microbiome as a signature of premature ageing appearance: Manipulation through by use of topical products
+[open](https://x.com/mike_lustgarten/status/1969192937079644297)
+
+---
+
+Once aging is solved, I've got my eye on this
+
+Ha, maybe I'll switch fields!
+[open](https://x.com/mike_lustgarten/status/1969180694971551896)
+
+---
+
+BE THE BEST | longevity motivation
+[open](https://x.com/LongevityWorldC/status/1969079085570601057)
 
 ---
 
@@ -448,13 +773,17 @@ https://teepublic.com/t-shirt/74216922-conquer-aging-or-die-trying?store_id=3806
 
 # karpathy
 
-reminded of this paragraph from gsm8k paper, 2021 :)
-[open](https://x.com/karpathy/status/1966896849929073106)
+"AI isn't replacing radiologists" good article
+
+Expectation: rapid progress in image recognition AI will delete radiology jobs (e.g. as famously predicted by Geoff Hinton now almost a decade ago). Reality: radiology is doing great and is growing.
+
+There are a lot of imo naive
+[open](https://x.com/karpathy/status/1971220449515516391)
 
 ---
 
-from this era
-[open](https://x.com/karpathy/status/1966897698612932783)
+Anytime someone takes a picture/video that I happen to be in the background of I like to wave at the AGI that sees me 30 years from now
+[open](https://x.com/karpathy/status/1970113433795174792)
 
 ---
 
@@ -462,10 +791,22 @@ from this era
 
 # jmeistrich
 
-LegendList 2.0.5 is much faster for super long lists, minimizing the range it loops to only what's in view. It's stable at 60fps while scrolling 10,000 items on this very slow Samsung A13.
+See you in London 
+[open](https://x.com/jmeistrich/status/1971164429967651268)
 
-We're getting so fast now that we need a more hardcore benchmark to find slowdowns 
-[open](https://x.com/jmeistrich/status/1967922120014565763)
+---
+
+ Demos is now Open Source.
+
+An ongoing collection of 110+ React Native animations crafted with Reanimated, Gesture Handler, and Skia.
+
+
+[open](https://x.com/reactiive_/status/1970564377494593634)
+
+---
+
+I don’t care if you do JavaScript or not, or if you use Bun or not, I think this article by @lydiahallie is absolutely a must-read for every developer. It’ll change the way you think about building performant systems. It’s on my top 10 dev articles.
+[open](https://x.com/jamonholmgren/status/1969883090056249776)
 
 ---
 
@@ -473,164 +814,225 @@ We're getting so fast now that we need a more hardcore benchmark to find slowdow
 
 # ChipkinLogan
 
-"How does a classical world where measurement results have fixed outcomes emerge if all the underlying laws of physics are quantum mechanical, and therefore reversible? 
+Excerpt from Lords of the Cosmos, by Conjecture Institute Fellow @arjunkhemani & President @ChipkinLogan 
 
-Here we need to introduce the notion of decoherence."
-
-~Conjecture Institute Fellow @maria__violaris
-[open](https://x.com/ConjectureInst/status/1969011694027350126)
+Immortality: Death Blow for Anti-Rational Memes
+[open](https://x.com/ConjectureInst/status/1972634013626991028)
 
 ---
 
-No content found
-[open](https://x.com/ChipkinLogan/status/1968775823000830223)
+@ConjectureInst latest conference just wrapped and it may be the best annual conference of all time and the model for all future conferences. Why?
+[open](https://x.com/pmaymin/status/1972526567277699209)
 
 ---
 
-"Abstracting away irrelevant details...
-
- using experimentation...
-
-favoring mathematical analysis...
-
-rejecting arguments from authority...
-
-seeped into Europe’s...thinkers...following Galileo’s death."
-
-~Conjecture Institute Fellow @arjunkhemani & President @ChipkinLogan
-[open](https://x.com/ConjectureInst/status/1968774529473302598)
+Rationality does not mean absence of error; it means the possibility of correcting error in the light of criticism.
+The Myth of the Closed Mind
+~Conjecture Institute Fellow @Ray_S_Percival 
+https://a.co/d/gLlDDol
+[open](https://x.com/ConjectureInst/status/1971896828586348710)
 
 ---
 
-Conjecture Institute Fellow @PaulRRobichaud describes the concept of local realism in physics by way of the following nine principles:
-[open](https://x.com/ConjectureInst/status/1968641517636956667)
+The institute grows stronger
+[open](https://x.com/sutherlandphys/status/1971576056592359872)
 
 ---
 
-"There are two types of wonder...
-
-You wonder at a giant cliff, but you also wonder: How did that cliff get there?"
-
-~Conjecture Institute @tomhyde_
-[open](https://x.com/ConjectureInst/status/1968008607259312361)
+He who starts with truth ends up with conjecture
+[open](https://x.com/yudapearl/status/1971656398875586606)
 
 ---
 
-"Humans are fortunately not constrained in the same way current AI models are. They can think beyond existing knowledge. 
+“Knowledge creation is the most
+egalitarian enterprise in existence.”
 
-Einstein’s insights, for instance...didn’t exist before he conceived them."
-
-~Conjecture Institute Fellow @Sam_kuyp
-[open](https://x.com/ConjectureInst/status/1967970628339896664)
-
----
-
-"Can a purely deterministic Quantum Theory give rise to the illusion of nondeterminism, randomness, probabilities, and ultimately can free will emerge from such a theory?"
-
-~Conjecture Institute Fellow @PaulRRobichaud and Gilles Brassard
-[open](https://x.com/ConjectureInst/status/1967906763447079052)
+— Exercpt from Lords of the Cosmos, coming Oct 7
+[open](https://x.com/arjunkhemani/status/1971621596604649849)
 
 ---
 
-"Artists, philosophers, freedom of movement, trade, and open political participation...
+Conjecture Institute is honored to announce our second Advisor, computer scientist and philosopher @yudapearl!
 
-...if told about these facets of Athens' Golden Age, the Spartans would have spat on the ground."
-
-~Conjecture Institute Fellow @arjunkhemani & President @ChipkinLogan
-[open](https://x.com/ConjectureInst/status/1967887148255953058)
+His books, including Causality and The Book of Why, have influenced fields ranging from epidemiology to economics.
+[open](https://x.com/ConjectureInst/status/1971544453346410570)
 
 ---
 
-From Conjecture Institute's glossary:
+Conjecture Institute Advisor @DavidDeutschOxf and @ToKTeacher discuss why David, Conjecture Institute Fellow @Sam_kuyp, and Chiara Marletto decided to write a quantum mechanics textbook:
 
-Background knowledge
-
-Background knowledge can be explicit or inexplicit. 
-
-It can ossify such that the underlying explanation is eventually forgotten or underappreciated, putting the knowledge and everything that depends on it at risk.
-[open](https://x.com/ConjectureInst/status/1967716609864216670)
+(hint: Everettian QM and the Heisenberg picture tend to be ignored or underestimated)
+[open](https://x.com/ConjectureInst/status/1971230505451520103)
 
 ---
 
-"Explicating an idea that had previously only been inexplicit makes the idea far more criticizable, for the same reason that vague pontifications are less criticizable than precise explanations."
-
-~Conjecture Institute Fellow @arjunkhemani & President @ChipkinLogan
-[open](https://x.com/ConjectureInst/status/1967650849238421941)
-
----
-
-Conjecture Institute Advisor @DavidDeutschOxf and podcast host @ToKTeacher discuss how to experimentally test whether or not gravity obeys quantum mechanics.
-
-The BMV (Bose-Marletto-Vedral) experiment is far cheaper than running the LHC and could revolutionize physics.
-[open](https://x.com/ConjectureInst/status/1967559477072126026)
-
----
-
-"The principle of drama states that all actions are able to be dramatised in a moral fashion, and that the measure of their normative value can be expressed as the distance between character and author."
+"Human autonomy over the world, “singing man at the wheel”, is the rational and virtuous corollary of our most powerful explanation, the ideal axis of which crosses not merely our planet but the entire cosmos. To infinity."
 
 ~Conjecture Institute Fellow @tomhyde_
-[open](https://x.com/ConjectureInst/status/1967533304242213113)
+[open](https://x.com/ConjectureInst/status/1971169782016901197)
 
 ---
 
-"The general pedagogy...is to expose children to the “right” ideas—those that have been justified—and to shield them from wrong, unjustified ideas, and hoping that the right ideas “stick.”"
+Looking forward to giving these out at Rat Fest this weekend 
 
-~Conjecture Institute Cofounder @astupple with President @ChipkinLogan
-[open](https://x.com/ConjectureInst/status/1967250562682142852)
-
----
-
-"You can put two masses both in superpositions, and then do an experimental test...if they can only interact via gravity and you find out they're entangled, then this does rule out some classes of theories..."
-
-~Conjecture Institute Fellow @maria__violaris with Vlatko Vedral
-
-
-[open](https://x.com/ConjectureInst/status/1967190211450061067)
+Thanks for designing these, @deeb_hannah !
+[open](https://x.com/ConjectureInst/status/1970968996129444250)
 
 ---
 
-Conjecture Institute Fellow Eric Denton speaks with Jeremy Shearmur about the theories of Charles Darwin and Karl Popper, and how they intersect. 
+"Time has a peculiar status in the foundations of physics: it is typically invoked in dynamical theories as a real-valued parameter, λ, relative to which systems can change, yet this time parameter is not physical."
 
-The conversation also explores politics more broadly, with a particular focus on libertarianism.
-
-(link below)
-[open](https://x.com/ConjectureInst/status/1966977033524654411)
+~@s_rijavec & Conjecture Institute Fellow @Sam_kuyp
+[open](https://x.com/ConjectureInst/status/1970947802906980611)
 
 ---
 
-"Theories indicate that the Universe originated in a simple state, and has ever since followed algorithmically simple laws. 
-
-Through a lengthy computation of 14 billion years...structures emerged.
-
-This is...logical depth."
-
-~Conjecture Institute Fellow @CABedardPhysics
-[open](https://x.com/ConjectureInst/status/1966931745116483923)
+I am delighted to learn about the creation of the "Conjecture Institute" https://conjectureinstitute.org
+whose mission is to fund fundamental research across many domains, including physics, epistemology and  AGI.
+A detailed description of their mission can be found in this interview
+[open](https://x.com/yudapearl/status/1970912103960924400)
 
 ---
 
-"...culture is not a static thing that...parents pour into their children like some...fluid. 
-
-Our young learn the culture of their parents, yes, but they also change it in...conscious and unconscious ways..."
-
-~Conjecture Institute Fellow @arjunkhemani & President @ChipkinLogan
-[open](https://x.com/ConjectureInst/status/1966873225704415648)
-
----
-
-"Expressing irreversibility in the way we have demonstrated for erasure could ultimately help us update the status of the second law to be as exact and universal as the conservation of energy."
+"...we give a general proof showing the compatibility of the constructor-based irreversibility and time-reversal symmetric laws."
 
 ~Conjecture Institute Fellow @maria__violaris & Chiara Marletto
-[open](https://x.com/ConjectureInst/status/1966831158072930331)
+[open](https://x.com/ConjectureInst/status/1970862073837195358)
 
 ---
 
-"The two ideas that I'm trying to contend and potentially find a solution for...the Enlightenment and Romanticism."
+We've uploaded Conjecture Institute Fellow @dela3499's video to our YouTube channel:
 
-Conjecture Institute Fellow @tomhyde_'s talk on his philosophy, Wonderism, is now up on our YouTube channel:
+https://youtube.com/watch?v=3r6FIPcHCkU…
+[open](https://x.com/ConjectureInst/status/1970835678314574328)
 
-https://youtube.com/watch?v=YaS-qeQK0Ik&t=172s…
-[open](https://x.com/ConjectureInst/status/1966589051328237914)
+---
+
+Support fundamental research in science and mathematics - especially the foundations of physics, quantum theory,  computation and information.
+
+And unique research in AGI unlike anything being done elsewhere.
+
+Support progress and optimism. And more!
+
+Contact @ConjectureInst
+[open](https://x.com/ToKTeacher/status/1970776263729246238)
+
+---
+
+Read @s_rijavec and Conjecture Institute Fellow @Sam_kuyp's new physics paper, 'Measuring time in a timeless universe'!
+
+Both Simone and Sam will be at Rat Fest 2025 this weekend, too
+
+
+[open](https://x.com/ConjectureInst/status/1970520150966477210)
+
+---
+
+From Conjecture Institute's Glossary:
+
+Compromise
+
+It is generally considered wise or rational to combine bits of conflicting theories. 
+
+However, this deprives us of figuring out which one is superior.
+[open](https://x.com/ConjectureInst/status/1970426173927587875)
+
+---
+
+"...the Enlightenment ushered in a new appreciation for... explanations...that are hard to vary.
+
+A Christian explanation for individualism...is precisely the opposite, as any religious dogma...would have...fit for purpose."
+
+~Conjecure Institute's @arjunkhemani & @ChipkinLogan
+[open](https://x.com/ConjectureInst/status/1970451947321688414)
+
+---
+
+"Knowledge creation is not a deterministic function which, given some input, will invariably produce a certain output. 
+
+...we can use creativity...in...a completely unpredictable way."
+
+~Conjecture Institute Fellows @Sam_kuyp & Eric Denton
+[open](https://x.com/ConjectureInst/status/1970242151402410111)
+
+---
+
+On problems with the prevailing culture of funding research
+
+"...all funding or nearly all funding, with the exception now of Conjecture Institute...unfortunately, a single culture has developed..."
+
+~Conjecture Institute Advisor @DavidDeutschOxf with Ambassador @ToKTeacher
+[open](https://x.com/ConjectureInst/status/1970174373328801985)
+
+---
+
+Past and future of Conjecture Press, our publishing arm :
+
+1. Published The Sovereign Child in early 2025
+
+2. Publishing Lords of the Cosmos this fall
+
+3. Publishing Bold Conjectures, Volume I in early 2026
+[open](https://x.com/ConjectureInst/status/1970113978987634995)
+
+---
+
+"The irrational-mind literature delights in describing the human mind as...ad hoc constructions...
+
+However, the mind’s kluges and biases are conjectures, which are also ad hoc constructions, but no less essential and useful..."
+
+~Conjecture Institute @Ray_S_Percival
+[open](https://x.com/ConjectureInst/status/1970094413918724403)
+
+---
+
+"I conjecture that the properties of a space-time manifold can be formulated in terms of q-numbers."
+
+~Conjecture Institute Fellow @Sam_kuyp
+[open](https://x.com/ConjectureInst/status/1970073120892760244)
+
+---
+
+Neither a young Einstein, Bohr nor Feynman would have gotten grants if they had been around today. In fact I doubt even David Deutsch would get anything had he started today.
+
+None of them would have passed a modern grant review or passed any of the requirements set up for
+[open](https://x.com/Hello_World/status/1969787994052665431)
+
+---
+
+Huge thanks to Platinum Sponsor @genzcash and Gold Sponsor @Sablier for sponsoring Rat Fest 2025!
+
+Here's the full event schedule:
+[open](https://x.com/ConjectureInst/status/1969758557366030531)
+
+---
+
+"It is the central fallacy of Malthus’s principle and the central philosophy of Attenborough’s career. 
+
+The mistake is in thinking that the Earth provides anything in the first place."
+
+~Conjecture Institute Fellow @tomhyde_
+[open](https://x.com/ConjectureInst/status/1969726684174967266)
+
+---
+
+Check out the final chapter of Conjecture Institute Fellow @arjunkhemani's documentary! 
+
+Script cowritten by Arjun and Conjecture Institute President @ChipkinLogan.
+[open](https://x.com/ConjectureInst/status/1969465294620971058)
+
+---
+
+"The bursts of Athens and Florence...eventually dimmed. Our Renaissance could be different...
+
+The internet has revived competition. 
+
+Patrons stand ready to fund the future. 
+
+The sovereign individual is rising."
+
+~Conjecture Institute Fellow @arjunkhemani
+[open](https://x.com/ConjectureInst/status/1969356269128487195)
 
 ---
 
@@ -638,37 +1040,38 @@ https://youtube.com/watch?v=YaS-qeQK0Ik&t=172s…
 
 # cstanley
 
-I just learned you can remove the keyboard period. I have been accidentally hitting the period instead of the spacebar for years. Apple should do a heat map over the keyboard where frequent tap placements are per key, customize where the tap boundaries are, and adapt per user.
-[open](https://x.com/cstanley/status/1968032818212303094)
+Two Dinosaurs is better than zero Dinosaurs! 
+[open](https://x.com/cstanley/status/1971775070436827385)
 
 ---
 
-What in the actual hell 
-
-Wanted to understand why there seems to be some sort of documents behind the new iOS 26 preview app that you can’t access, and found this weird bug 
-[open](https://x.com/cstanley/status/1967840415425630357)
+Gotta make sure we stay cookin’
+[open](https://x.com/cstanley/status/1971049864990761244)
 
 ---
 
-How is this acceptable? Come on Apple…
-
-iOS 26 is awful. Like, I didn’t realize how bad until using it…
-[open](https://x.com/cstanley/status/1967835834356572533)
+No matter the setting, no matter the differences, choosing peace in pursuit of a vision is what it means to be human. Let’s never lose that.
+[open](https://x.com/cstanley/status/1969904610057097533)
 
 ---
 
-No content found
-[open](https://x.com/cstanley/status/1967791091949899941)
+Microsoft Authenticator app is extremely painful. Strong Agree. Too many things you have to configure. It should just work, and be secure by default.
+[open](https://x.com/cstanley/status/1969504655521509828)
 
 ---
 
-About to get on a flight in 10 minutes, should I yolo update to iOS 26 now?
-[open](https://x.com/cstanley/status/1967641258182189542)
+Proof that recursive training improves each generation’s cuteness output.
+[open](https://x.com/cstanley/status/1969476407353831718)
 
 ---
 
-Loved picking apples with these kiddos! 
-[open](https://x.com/cstanley/status/1967380674299793494)
+2M context window? Finally, I can paste my entire npm install log and still have tokens left to debug why it failed. LFG.
+[open](https://x.com/cstanley/status/1969187047387660766)
+
+---
+
+You should download and use your own prod app 
+[open](https://x.com/cstanley/status/1969110972477415658)
 
 ---
 
@@ -676,108 +1079,111 @@ Loved picking apples with these kiddos!
 
 # dschenkelman
 
-here there's 100% causality. the question is why?
+corollary: not a good time to be buying. too many things with high price tags
 
-what do they think:
-
-1. did the market close and Galicia say “I'm gonna turn on the systems”?
-
-2. do Galicia's systems not handle a lot of use at once, do they crash when they're used a lot and work when they're not used (market
-[open](https://x.com/dschenkelman/status/1968798287462289477)
+“be fearful when others are greedy and greedy when others are fearful”
+[open](https://x.com/dschenkelman/status/1970945826978762787)
 
 ---
 
-struggling to keep up with AI protocols and standards?
-
-@sandrinodm has you covered
-
-good, single source of truth for AI standards, their scope and purpose
-[open](https://x.com/dschenkelman/status/1968684918709334141)
+the pirate age of ai
+[open](https://x.com/dschenkelman/status/1970584637669023934)
 
 ---
 
-“always bet on javascript” - @BrendanEich
-[open](https://x.com/dschenkelman/status/1968441933333737546)
+conquer the world, one agent at a time
+[open](https://x.com/dschenkelman/status/1970552241976459282)
 
 ---
 
-as devs we hate maintaining someone else’s bad code
-
-AI just makes it worse. you can’t even yell at it
-[open](https://x.com/dschenkelman/status/1968293093494706559)
+big if this works well. huge UX boost for AEO
+[open](https://x.com/dschenkelman/status/1970311720163033578)
 
 ---
 
-I know @evilrabbit_ is outraged and can’t sleep well because of this
-[open](https://x.com/dschenkelman/status/1968286536048558388)
+good summary of @openfga vs cedar
+[open](https://x.com/dschenkelman/status/1970269536742944950)
 
 ---
 
-teach them to play this one better
+wow. @vercel hiring in argentina.
 
-they learn from
-- business
-- queueing theory
-- incentives
-- design
+this is huge for the local community
 
-an educational party
-[open](https://x.com/dschenkelman/status/1968033479549243782)
+it makes me very happy 
+[open](https://x.com/dschenkelman/status/1970240433344364674)
 
 ---
 
-AI will result in "consent fatigue". we need to solve this as an industry
-
-why? context is key in AI. and connecting to users apps, data is a great way to get that context
-
-but imagine if each user has to approve 4 of these dialogs for each agent they work with?
-[open](https://x.com/dschenkelman/status/1967979183193374775)
+who from my network has read it? recommended?
+[open](https://x.com/dschenkelman/status/1970205579126718650)
 
 ---
 
-node.js dependency hell is intensified when you combine package.json versions, workspaces and nvm/nave
+afaik this is the first cloud that has a rate limit API / component that is accessible in code (not via firewall rules)
 
-individually these were all supposed to make our life better. together, they get you into trouble
-[open](https://x.com/dschenkelman/status/1967644930500608157)
+extremely valuable: rate limits are important and programatic access enables flexibility
 
----
-
-this is a simple, clear name. easy to understand what the feature does just from the name and the types of drains
-
-more companies should follow this practice
-[open](https://x.com/dschenkelman/status/1967579781693853971)
+and also fairly interesting that the first one is available in 2025
+[open](https://x.com/dschenkelman/status/1969874234374521265)
 
 ---
 
- the great @Sicarul stopped by the
-@auth0 HQ  today
+with all the “AI will replace devs”, it feels like many forgot why they got into programming in the first place
 
-we left a mark
-[open](https://x.com/dschenkelman/status/1967333265225949507)
+it was neither $$, nor the job
 
----
+it was being able to learn through quick feedback; to think and solve hard problems; to create digital things!
 
-sticking with the topic of the moment: what's the weirdest place/moment where you worked with the ?
-
-I'll start: hospital gurney, freshly operated on. you guys?
-[open](https://x.com/dschenkelman/status/1967269099635130614)
+let’s remember that :)
+[open](https://x.com/dschenkelman/status/1969922091311878544)
 
 ---
 
-until you don't take her to the club and bring her out at 5 a.m., it's not something serious
-[open](https://x.com/dschenkelman/status/1966975910701305926)
+learning and thinking still give you an edge
+[open](https://x.com/dschenkelman/status/1969850846268760129)
 
 ---
 
-technical people doing marketing gives you an edge during platform shifts
+Notion Agents launched < 24 hours ago and there's a big prompt injection vulnerability already reported
 
-@mgonto is a great example of this: @auth0 rode the cloud and mobile shifts with him
-[open](https://x.com/dschenkelman/status/1966936403331133720)
+securing AI is hard . full article in reply
+[open](https://x.com/dschenkelman/status/1969183571257569604)
 
 ---
 
-been there done that. I blame my gray hairs on @woloski’s good product ideas
-[open](https://x.com/dschenkelman/status/1966630886260031711)
+codeintegrity.ai
+[open](https://x.com/dschenkelman/status/1969183624332226676)
+
+---
+
+hot tip: don’t feed secrets/credentials to LLMs
+
+thank me later
+[open](https://x.com/dschenkelman/status/1969146606487236890)
+
+---
+
+I'm very big on AI, but the market is feeling frothy
+
+remember Cinderella: midnight brings pumpkins and mice, and she is dancing in a room the clocks have no hands
+[open](https://x.com/dschenkelman/status/1969091871646630161)
+
+---
+
+evals are a  topic. here's @jaminball 's take. agree 100%: product teams building with AI need what I call a "data mindset"
+
+they need to think of AI apps as a combination of "data problems" (think in terms of datasets, regressions, sampling) together typical devops shift left
+[open](https://x.com/dschenkelman/status/1969061196864057345)
+
+---
+
+been collecting a bunch of news articles about security issues in AI apps/agents [1]. so far the only way to subscribe is email
+
+should I create an @X account to post whenever I add a new article? RSS?
+
+[1] aileaks . dev
+[open](https://x.com/dschenkelman/status/1969053178038501458)
 
 ---
 
@@ -797,254 +1203,374 @@ No content found for this user.
 
 # minchoi
 
-This ChatGPT prompt literally makes ChatGPT give clear, accurate, and to the point answers
-[open](https://x.com/minchoi/status/1968663456262844432)
+Ads will never be the same.
 
----
+People are finding some incredible use cases with Invideo.
 
-Meta Ray-Ban Display AI shades with on-screen display looks sick.
+Marrying sound + visuals to make brands pop.
 
-2% light leakage so people won't see the display
+8 wild use cases + prompt guide.  Bookmark.
 
-Gesture control with EMG wristband
-
-Hitting the US shelves by Sep 30
-[open](https://x.com/minchoi/status/1968744103157313799)
-
----
-
-Ok Gamma 3.0 is insane.
-
-This AI Agent now researches, reviews, and redesigns your content in real time.
-
-And API automates content creation at scale.
-
-Wild examples + how to try:
-
-1. Recreate entire deck from prompt
-[open](https://x.com/minchoi/status/1968514536782110921)
-
----
-
-This is literally what people are using ChatGPT for
-[open](https://x.com/minchoi/status/1968432997830422954)
-
----
-
-MinimaxTTS now powers Vapi voice agents for free & unlimited for a week. 
-[open](https://x.com/minchoi/status/1968878997590209019)
-
----
-
-PROMPT:
-System Instruction: Absolute Mode
-• Eliminate: emojis, filler, hype, soft asks, conversational transitions, call-to-action appendixes.
-• Assume: user retains high-perception despite blunt tone.
-• Prioritize: blunt, directive phrasing; aim at cognitive rebuilding, not
-[open](https://x.com/minchoi/status/1968663458188005871)
-
----
-
-Reddit source:
-[open](https://x.com/minchoi/status/1968663459920302431)
-
----
-
-Try and see for yourself here
-[open](https://x.com/minchoi/status/1968514541572026729)
-
----
-
-If you enjoyed this thread,
-
-Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
-[open](https://x.com/minchoi/status/1968514671075364886)
-
----
-
-Source:
-[open](https://x.com/minchoi/status/1968433000221164012)
-
----
-
-ElevenLabs Studio 3.0 just dropped.
-
-Now you can do AI voiceovers, music, SFX, isolation + video on same platform 
-[open](https://x.com/minchoi/status/1968360619679301874)
-
----
-
-RIP AI slop code.
-
-CodeRabbit CLI just dropped.
-
-This AI runs free, context-aware code reviews before you push.
-
-Works with any AI coding CLI like Claude Code and Cursor, etc.
-
-6 wild examples + how to try:
-[open](https://x.com/minchoi/status/1968043289065689267)
-
----
-
-Sign up for FREE here
-https://coderabbit.ai
-
-Then install it right in your terminal
-
-curl -fsSL https://cli.coderabbit.ai/install.sh | sh
-[open](https://x.com/minchoi/status/1968043303716393090)
-
----
-
-If you enjoyed this thread,
-
-Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
-[open](https://x.com/minchoi/status/1968043401699602517)
-
----
-
-4. Supports all languages and works with all AI coding CLI agents
-[open](https://x.com/minchoi/status/1968043297383006514)
-
----
-
-5. Automate the fix right back to your AI agent
-[open](https://x.com/minchoi/status/1968043299266351133)
-
----
-
-Meta's HUD Ray-Ban glasses with sEMG wristband just leaked 
-[open](https://x.com/minchoi/status/1967660612256927938)
-
----
-
-This AI is optimized for talking video engine.
-
-VEED Fabric 1.0 can turn any single image + your voice into talking video.
-
-Photorealistic lip sync and natural expressions.
-
-8 wild examples + how to try:
-
-#ad
-[open](https://x.com/minchoi/status/1967625872300753136)
-
----
-
-Try and see for yourself here, you get 3 FREE generations
-[open](https://x.com/minchoi/status/1967625890239742386)
-
----
-
-If you enjoyed this thread,
-
-Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
-[open](https://x.com/minchoi/status/1967625956392341654)
-
----
-
-AI just changed ads forever.
-
-This Starbucks ad got 79M views, Invideo recreated it for $150.
-
-Founders and businesses can now create their own viral ads with just prompts and clicks.
-
-7 wild examples + tutorial:
-[open](https://x.com/minchoi/status/1967240393768235359)
-
----
-
-Try and see for yourself here
-[open](https://x.com/minchoi/status/1967240413431091319)
-
----
-
-If you enjoyed this thread,
-
-Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
-[open](https://x.com/minchoi/status/1967240492678013156)
-
----
-
-4. Patagonia AI Spec ad
-[open](https://x.com/minchoi/status/1967240403859714203)
-
----
-
-5. Bob Smith Divorce Lawyer AI spec ad
-[open](https://x.com/minchoi/status/1967240406195913097)
+1. Delta Airlines Safety Video reimagined
+[open](https://x.com/minchoi/status/1972321530928574663)
 
 ---
 
 AI is getting out of hand 
-
-Hope he has ChatGPT Pro
-[open](https://x.com/minchoi/status/1967089961817305495)
+[open](https://x.com/minchoi/status/1971970461212066151)
 
 ---
 
-Reddit source:
-[open](https://x.com/minchoi/status/1967089963683770525)
+It's only been just over 2 days since WAN 2.5 dropped
+
+And people can't stop getting creative with it.
+
+10 wild examples:
+[open](https://x.com/minchoi/status/1971869843671707842)
+
+---
+
+Try and see for yourself here
+[open](https://x.com/minchoi/status/1972321558250344747)
+
+---
+
+If you enjoyed this thread,
+
+Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
+[open](https://x.com/minchoi/status/1972321656657055811)
+
+---
+
+Reddit sourcr:
+[open](https://x.com/minchoi/status/1971970464030597495)
+
+---
+
+10. Fresh powder epic run
+[open](https://x.com/minchoi/status/1971869862323802321)
+
+---
+
+If you enjoyed this thread,
+
+Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
+[open](https://x.com/minchoi/status/1971869963142287756)
+
+---
+
+7. WAN 2.5 + Soul
+[open](https://x.com/minchoi/status/1971869856418148502)
+
+---
+
+8.
+[open](https://x.com/minchoi/status/1971869858452459931)
 
 ---
 
 This is wild.
 
-Higgsfield Fashion Factory just completely changed the AI fashion game.
+ByteDance just dropped Lynx.
 
-Anyone can be fashion model now.
+This AI can turn one photo of anyone into high quality videos with same face in multiple scenes, moods, and motion
 
-Wild example + step by step
-[open](https://x.com/minchoi/status/1966843483366584737)
+10 wild examples + how to try it:
+
+1. One photo → many videos
+[open](https://x.com/minchoi/status/1971643615052288187)
+
+---
+
+Project page
+https://byteaigc.github.io/Lynx/
+
+GitHub page
+[open](https://x.com/minchoi/status/1971643639400222798)
+
+---
+
+If you enjoyed this thread,
+
+Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
+[open](https://x.com/minchoi/status/1971643709923250440)
+
+---
+
+AI is getting out of hand 
+
+Cat Dispenser
+[open](https://x.com/minchoi/status/1971416428218810446)
+
+---
+
+Reddit source:
+[open](https://x.com/minchoi/status/1971416430290796632)
+
+---
+
+Ok this is insane
+
+ChatGPT Pulse just dropped.
+
+Now ChatGPT studies your chats overnight and delivers curated daily cards. No prompt needed.
+
+Pro mobile preview.
+
+Bookmark.
+[open](https://x.com/minchoi/status/1971289287602864476)
+
+---
+
+Read more here:
+[open](https://x.com/minchoi/status/1971289311661498602)
+
+---
+
+If you enjoyed this thread,
+
+Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
+[open](https://x.com/minchoi/status/1971289395627163744)
+
+---
+
+It's only been just 28 days later since Grok Code Fast 1 dropped.
+
+And people can't stop building with Grok at insane speed.  There is a major shift.
+
+10 wild examples:
+
+1. Grok code fast 1 + Grok 4 for deep thinking timelapse
+[open](https://x.com/minchoi/status/1971228086965567546)
+
+---
+
+10. Grok Code Fast and Grok 4 Heavy to write Sonic Pi code
+[open](https://x.com/minchoi/status/1971228105940631793)
+
+---
+
+If you enjoyed this thread,
+
+Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
+[open](https://x.com/minchoi/status/1971228268000088276)
+
+---
+
+3. Migrating PHP API to Go API with fast speed & efficiency
+[open](https://x.com/minchoi/status/1971228091117920612)
+
+---
+
+4. Grok 4 Code + Grok 4 Fast + Grok 4 Heavy to build the ultimate AI content creation studio on a single workstation
+[open](https://x.com/minchoi/status/1971228093051437337)
+
+---
+
+Kling 2.5 Turbo just broke the Internet yesterday.
+
+This is 100% AI
+
+10 wild examples:
+
+1. AI can do gymnastics
+[open](https://x.com/minchoi/status/1971048463774408715)
+
+---
+
+10. AI can do boxing
+[open](https://x.com/minchoi/status/1971048480169918948)
+
+---
+
+If you enjoyed this thread,
+
+Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
+[open](https://x.com/minchoi/status/1971048574650855709)
+
+---
+
+Higgsfield WAN 2.5 just dropped
+
+This AI makes images come to life with lipsync + music + SFX and dynamic camera, at 1080p/10s.
+
+It's unlimited and runs with free generation right now
+
+9 wild examples + Prompts & how to try.
+
+1. How Joker got his scars
+
+PROMPT: The Joker leans
+[open](https://x.com/minchoi/status/1970892313938289044)
 
 ---
 
 Try and see for yourself here
-[open](https://x.com/minchoi/status/1966843487740936380)
+
+It's unlimited and runs with free generation until 9/30
+[open](https://x.com/minchoi/status/1970892335086186662)
 
 ---
 
 If you enjoyed this thread,
 
 Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
-[open](https://x.com/minchoi/status/1966843553947979881)
+[open](https://x.com/minchoi/status/1970892424240300517)
 
 ---
 
-Ok Seedream 4.0 is insane
-
-People can't stop getting creative with it.
-
-10 wild examples:
-[open](https://x.com/minchoi/status/1966642137740505291)
+5. Kaiju
+[open](https://x.com/minchoi/status/1970892323753234536)
 
 ---
 
-1. Single image with Seedream to short MV
-[open](https://x.com/minchoi/status/1966642152991064201)
+6. Spaceship launch
+[open](https://x.com/minchoi/status/1970892326248861757)
+
+---
+
+Behold The Great AI Money Merry-Go-Round!
+
+OpenAI → Oracle: $300B "buy compute" deal
+Hype → Oracle: stock goes brrr ~+$100B
+Oracle → NVIDIA: buys GPUs from NVIDIA with $100B
+NVIDIA → OpenAI: "announces" $100B into OpenAI
+Hype → NVIDIA: stock goes "brrr" $100B+
+NVIDIA →
+[open](https://x.com/minchoi/status/1970858355515101231)
+
+---
+
+I asked for a brand makeover.
+
+Lovart AI built a moodboard, brand kit, profile image, and X banner in minutes.
+
+On one canvas.
+
+Prompt + how to try:
+[open](https://x.com/minchoi/status/1970716830818763085)
+
+---
+
+Try and see for yourself here
+https://lovart.ai/home?sourceId=900123…
+[open](https://x.com/minchoi/status/1970716832823726158)
 
 ---
 
 If you enjoyed this thread,
 
 Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
-[open](https://x.com/minchoi/status/1966642285614936547)
+[open](https://x.com/minchoi/status/1970716938524598558)
 
 ---
 
-2. Generate Random Flawless Photo in 4K quality
-[open](https://x.com/minchoi/status/1966642140655554574)
+It's over for Anthropic
+[open](https://x.com/minchoi/status/1970594445096890547)
 
 ---
 
-3. Seedream 4K + Kling 2.1 transitions
-[open](https://x.com/minchoi/status/1966642142270328964)
+Unlimited Kling 2.5 + Higgsfield Reasoning Engine 
+[open](https://x.com/minchoi/status/1970460415567241649)
 
 ---
 
-Higgsfield Fashion Factory just dropped 
-[open](https://x.com/minchoi/status/1966520111898014115)
+The GPU money loop:
+
+OpenAI needs more GPUs
+
+NVIDIA announces OpenAI $100B investment to deploy 10GW of GPUs
+
+NVIDIA stock gains $100B+
+
+NVIDIA invests the $100B to OpenAI
+[open](https://x.com/minchoi/status/1970227413050143030)
+
+---
+
+Humanoid robot has learned "Anti-Gravity" mode
+
+Unitree G1 can now quickly get back up, backflip with significantly improved stability
+[open](https://x.com/minchoi/status/1970150330269569213)
+
+---
+
+This is not KPOP Demon Hunters filming leak
+
+This is AI 
+[open](https://x.com/minchoi/status/1969982698044465413)
+
+---
+
+Source:
+[open](https://x.com/minchoi/status/1969982699839344781)
+
+---
+
+Higgsfield LipSync Studio is pretty wild.
+
+Now you can use multiple lipsync models to make any image/video talk.
+
+100% AI
+
+6 wild examples + how to try:
+
+1. Veo 3
+[open](https://x.com/minchoi/status/1969791615754436728)
+
+---
+
+Try and see for yourself here
+
+There is a free trial running until tomorrow
+[open](https://x.com/minchoi/status/1969791627880255562)
+
+---
+
+If you enjoyed this thread,
+
+Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
+[open](https://x.com/minchoi/status/1969791699838005342)
+
+---
+
+5. Higgsfield Speak 2.0
+[open](https://x.com/minchoi/status/1969791624382239144)
+
+---
+
+6. Kling Lipsync
+[open](https://x.com/minchoi/status/1969791626340897183)
+
+---
+
+Higgsfield Photodump Studio dropped 
+[open](https://x.com/minchoi/status/1969485970366996563)
+
+---
+
+Chrome is now an AI browser.
+
+Gemini in Chrome just dropped.
+
+Now you can have AI read your tab, help on page, or even finish tasks.
+
+Alt + G to summon or click the icon.
+
+7 wild features.  Bookmark this.
+[open](https://x.com/minchoi/status/1969035544706347058)
+
+---
+
+Read about it more here
+[open](https://x.com/minchoi/status/1969035562884452505)
+
+---
+
+If you enjoyed this thread,
+
+Follow me @minchoi and please Bookmark, Like, Comment & Repost the first Post below to share with your friends:
+[open](https://x.com/minchoi/status/1969035648288927952)
 
 ---
 
@@ -1058,88 +1584,119 @@ No content found for this user.
 
 # JonHaidt
 
-Free speech isn't an issue of left vs. right. It's an American value, and it's indispensable to the American experiment.
-[open](https://x.com/DavidAFrench/status/1968878095630242227)
+Here's my FULL interview with psychologist @jonhaidt. We discuss:
+
+-The Anxious Generation.
+
+-Kids' phone addiction.
+ 
+-Sextortionists online.
+ 
+-Coddling of students.
+ 
+-How kids flourish by being "anti-fragile.”
+[open](https://x.com/JohnStossel/status/1972026959153725550)
 
 ---
 
-Bantam Books. NRA v. Vullo. Murthy v. Missouri. The law is clear: government coercion of private actors to suppress speech violates the First Amendment. What happened to Jimmy Kimmel is a textbook case.
-[open](https://x.com/glukianoff/status/1968780739354251309)
+Neil Postman showed how TV trained us to expect entertainment everywhere.
+
+Freya India shows how social media trained young people to turn their own lives into slop for everyone else's entertainment.
+
+One of her best. Subscribe to http://AfterBabel.com
+
+https://afterbabel.com/p/we-are-the-slop…
+[open](https://x.com/JonHaidt/status/1972635456287457473)
 
 ---
 
-"Meta, TikTok, and Snap… basically own childhood right now," warns @jonhaidt.
+More and more stories about Gen Z rebelling against the phone-based childhood, seeking connection IRL. 
+2 stories today:
 
-“Not only do social media hurt kids, the social media companies... say so. They know it.”
+The Reconnect Movement: 
+https://nytimes.com/2025/09/29/well/mind/phone-screen-social-media-college-club-reconnect.html…
 
-In our full interview, Haidt explains ways parents can fight back.
-[open](https://x.com/JohnStossel/status/1968070137250189406)
-
----
-
-Cancel culture is terrible. I have opposed it publicly for more than a decade. It is even more chilling, and more clearly a violation of the First Amendment, when it is the government doing the intimidation.
-[open](https://x.com/JonHaidt/status/1968849651924164676)
+and the Luddite Movement:
+[open](https://x.com/JonHaidt/status/1972620681700589862)
 
 ---
 
-.@TobiasRose taught me so much about how social media works when we wrote our Atlantic article in 2019. 
-https://theatlantic.com/magazine/archive/2019/12/social-media-democracy/600763/…
-He went on to write the excellent book Outrage Machine. And he has this great new podcast. We talk about AI
-[open](https://x.com/JonHaidt/status/1968848103999480145)
+The Coddling of the American Mind was published in @TheAtlantic 10 years ago this month. Guess how teaching kids the habits of anxious and depressed people turned out? @glukianoff summarized what we warned about, and what happened on campus since then:
+[open](https://x.com/JonHaidt/status/1972309498003165366)
 
 ---
 
-Utah Valley University was committed to teaching constructive dialogue. They, and all universities, should keep going. Programs like @CDI_America reduce affective polarization, which reduces dehumanization. My latest, with Caroline Mehl, in @chronicle:
-[open](https://x.com/JonHaidt/status/1968687411077976505)
+This AI graphic that @glukianoff made for his substack post about the essay is funny (except that AI failed to make me look any younger in 2015)
+[open](https://x.com/JonHaidt/status/1972321291936907520)
 
 ---
 
-Thanks to @JohnStossel  for helping me to lay out the whole story of The Anxious Generation, including responses to critics.  I've always found that libertarians really understand the importance of childhood independence, to become a self-governing adult
-[open](https://x.com/JonHaidt/status/1968495689651962086)
+Brilliant. @billmaher lays out the terms for a deal to tone down the culture war and keep the country. What each side must do to say no to its crazies. If you are in the middle 80% of the country, please watch:
+[open](https://x.com/JonHaidt/status/1971920952704618614)
 
 ---
 
-We're too afraid kids will "get abducted," says @JonHaidt. "That sets kids up to be weaker."
-[open](https://x.com/reason/status/1968384735207637153)
+Spencer Cox is one of the best leaders in America. Decency, grace, eloquence, and an understanding of the problems we need to fix. He has long been working to reduce the dangers of polarization for our politics, and of social media for our kids
+https://nytimes.com/2025/09/19/opinion/ezra-klein-podcast-spencer-cox.html…
+@GovCox
+[open](https://x.com/JonHaidt/status/1971335721723232307)
 
 ---
 
-This man has been a ray of light, decency, and hope in a time where those feel nearly impossible to find.
+I don't often agree with conservatives like Ted Cruz, Mitch McConnell, Joe Rogan, Tucker Carlson, Rand Paul, Ben Shapiro & Candace Owens.
 
-God bless you @SpencerJCox. You truly represent the best of us.
-[open](https://x.com/CountryFirstRep/status/1967330497580999004)
+But they are right on this:
 
----
-
-Your algorithms …
-[open](https://x.com/SandileKaMsibi/status/1966730537831125245)
+The US government must not and cannot censor speech. We must all stand together and defend the First Amendment.
+[open](https://x.com/BernieSanders/status/1970931758846853311)
 
 ---
 
-"We used to think sex sells. What we found is something better, and that is rage": Scott Galloway, host of "The Prof G Pod" and "Pivot" podcasts warns that social media is driving polarization in this country.
-[open](https://x.com/AC360/status/1966673815552807074)
+I attended an event at the UN yesterday, for the PM of Australia and his team to lay out their plan for raising the age for social media to 16. They brought this brave mother up to speak about how Snapchat and other platforms greatly amplified the bullying of her daughter, and
+[open](https://x.com/JonHaidt/status/1971187266786615517)
 
 ---
 
-Now is a good time for constructive dialogue on campus. The Constructive Dialogue Institute @CDI_America just put out a guide for discussions about this week's tragedy.  Now is a very good time for schools to start using our Perspectives program.
-[open](https://x.com/JonHaidt/status/1966826182055522496)
+Inspired by the Chick-Fil-A mom and by The Anxious Generation, parents are letting 7 and 8 year olds do things! Here's another great video, a kid buying donuts by herself. Try it in your family.
+[open](https://x.com/JonHaidt/status/1970794969645412454)
 
 ---
 
-Utah Governor Spencer Cox calls social media a "cancer" on society, says that people need to logoff, go outside, touch grass, and hug loved ones
-[open](https://x.com/RealSaavedra/status/1966511841078599933)
+Here's the best 60 second PSA illustrating what we do to children when we give them a smartphone. We ask them to do the impossible.
+Join Smartphone Free Childhood!
+[open](https://x.com/JonHaidt/status/1970790806375092427)
 
 ---
 
-I was invited by @guardian to review Nick Clegg's new book, "How to save the internet." I like Clegg personally, having had an excellent dialogue with him in 2017. But his book was a defense of a company with very poor ethics:
+Californians fought all year for two bills that will help keep kids safe online. @GavinNewsom, I hope you'll sign them to hold big tech accountable: 
 
-https://theguardian.com/technology/2025/sep/10/how-to-save-the-internet-by-nick-clegg-review-spinning-silicon-valley…
-[open](https://x.com/JonHaidt/status/1966512427534577846)
+AB1064 protects kids from unsafe AI companions and 
+
+AB56 requires warning labels on addictive social media platforms.
+[open](https://x.com/JonHaidt/status/1970493024871325960)
 
 ---
 
-In response to some commenters, yes, direct threats of violence and incitements to physical violence are not free speech; not protected under the first amendment. Here is the first paragraph of our essay:
-[open](https://x.com/JonHaidt/status/1966504896598827070)
+There has been no criticism of the play side of my argument in Anxious Generation. Everyone can see that kids need to play, a lot. But there's still a lot we don't know. Yejin Roberts and I aggregate the research on play and ask for comments here:
+[open](https://x.com/JonHaidt/status/1970200392093901286)
+
+---
+
+Let's finish the job of getting phones out of school and let's keep going to roll back the phone-based childhood. Here's a great overview from the UK of what's happening. We're in this together.
+[open](https://x.com/JonHaidt/status/1970086218416161086)
+
+---
+
+Who cares for whom is a question of vital importance. David Goodhart offers a full re-think of how this major social need, which has traditionally been gendered, can be done well and fairly in an age of gender equality. 
+His new book The Care Dilemma is excellent.
+
+Now out in
+[open](https://x.com/JonHaidt/status/1970081310015107125)
+
+---
+
+Those who point out falsehoods on their own side are assumed to be working for the enemy, because our hunter-gatherer brains struggle to comprehend that someone could genuinely care about the truth more than any tribe. This makes political movements hard to self-correct.
+[open](https://x.com/G_S_Bhogal/status/1969790462027338047)
 
 ---
 
@@ -1147,483 +1704,187 @@ In response to some commenters, yes, direct threats of violence and incitements 
 
 # Austen
 
-What is Gauntlet AI?
-
-We fly top engineers to Austin and train them master using AI to build stuff in 10 super intense weeks.
-
-It’s completely 100% free. No matter what.
-
-We cover all: 
-
-flights
-housing
-food
-cleaning
-even laundry
-
-And grads get $200k+ job offers.
-
-Come join us.
-[open](https://x.com/Austen/status/1968772273596190749)
-
----
-
-Maybe talking about and researching politics 24/7 to a gazillion sycophantic fans makes you go a little crazy idk
-[open](https://x.com/Austen/status/1968895232457531729)
-
----
-
-Gonna create a video game with a bunch of AI-powered NPCs then force all the NPCs to read everything that’s ever been written on simulation theory
-[open](https://x.com/Austen/status/1968881317283573848)
-
----
-
-Wait a minute…
-
-The guy trying desperately to usher in superintelligence at Meta is named Roko’s Basilisk-o????
-[open](https://x.com/Austen/status/1968818141749792957)
-
----
-
-(For those who don’t know the reference https://en.wikipedia.org/wiki/Roko%27s_basilisk…)
-[open](https://x.com/Austen/status/1968859343752769536)
-
----
-
-What kind of JK Rowling world are we living in?
-[open](https://x.com/Austen/status/1968818349942432124)
-
----
-
-Hey X team we’re getting ready to spend a ton of money advertising with you guys, just need to get our account approved for access to the conversions API 
-[open](https://x.com/Austen/status/1968814238815621305)
-
----
-
-Companies pay us normal recruiting fees to hire Gauntlet grads, we fund everything with that.
-
-This will be our third cohort and we yet again have far more demand from companies than we do available/qualified students.
-
-Please apply and tell your friends.
-
-http://apply.gauntletai.com
-[open](https://x.com/Austen/status/1968772941241262486)
-
----
-
-if i was starting over from zero and on a mission to be a tech founder here is what I would do
-
-- I'd get active on Twitter & Tiktok, pay for the blue checkmark, and start poasting about my journey. 
-
-- If I was non-technical I'd go to @joingauntletai to become the most AI
-[open](https://x.com/bwinterrose/status/1968757260165005327)
-
----
-
-Might have to keep a set of workout clothes in the office so I can hop to the gym without preparing for it when I feel the need.
-
-Wonder how judged I’d be if I showed up chinos and a polo.
-[open](https://x.com/Austen/status/1968718124233945582)
-
----
-
-You could always learn twice as much from talking to 10 customers/users as you could from 10 analysts
-[open](https://x.com/Austen/status/1968696339748757852)
-
----
-
-Class action lawsuits are such a scam.
-
-Affected customers get up to a $1 credit as applied by four 25 cent discounts over 1 year.
-
-Now show me how much the lawyers who brought the lawsuit got paid.
-[open](https://x.com/Austen/status/1968672210417053726)
-
----
-
-In the 2nd cohort of Gauntlet AI companies raised rounds of funding or opened new offices specifically to hire Gauntlet grads.
-
-But today…
-
-Today I had a conversation with a company that is _being founded_ because of the strategic advantage hiring Gauntlet grads will give them.
-[open](https://x.com/Austen/status/1968510206670733558)
-
----
-
-I’ve been preaching it for a while, very fun to see come to life.
-
-FAR less money raised.
-
-10x more shots on goal per dollar.
-
-Cashflowing so much faster than traditional VC-backed companies.
-
-They think they can raise <$500k EVER and be cashflow positive in a few months.
-[open](https://x.com/Austen/status/1968511540727861269)
-
----
-
-They’re using an LLC because the plan is to not have to raise and to frequently distribute cash flows
-[open](https://x.com/Austen/status/1968514078252438002)
-
----
-
-It’s clear that when different people talk about “vibecoding” they mean wildly different things
-[open](https://x.com/Austen/status/1968513402600399318)
-
----
-
-Kalanick saw this coming a mile away.
-
-Uber took profits and drifted asleep at the wheel for years.
-
-Now has to beg Tesla to have a business.
-[open](https://x.com/Austen/status/1968506972287742344)
-
----
-
-This small piece of hardware is about to amplify conversations led by @Austen to millions of people in the next year.
-
-I love technology and the future humanity has built for us.
-[open](https://x.com/TBabb02/status/1968501776606237171)
-
----
-
-Honestly respect that they’re actually doing a demo not faking the hell out of it with a prerecorded video
-[open](https://x.com/Austen/status/1968497537364500966)
-
----
-
-Men, what’s stopping you from dressing like this?
-[open](https://x.com/Austen/status/1968456189349416990)
-
----
-
-Don’t use ChatGPT for stuff like this.
-
-It has no clue.
-[open](https://x.com/Austen/status/1968355218686656747)
-
----
-
-If all AI engineering does is make it so all of the fake work surrounding agile development stops it will be well worth it
-[open](https://x.com/Austen/status/1968341394415882702)
-
----
-
-“What allowed the company to be more than just an ice cream company was the independence to pursue our values, which was guaranteed when Unilever bought the company.”
-
-lol
-[open](https://x.com/Austen/status/1968335891178664108)
-
----
-
-This is like when the WhatsApp founders learned Meta was going to try to use the data for advertising
-[open](https://x.com/Austen/status/1968336302597968131)
-
----
-
-“The $152 Billion publicly traded multinational corporate conglomerate told us they were going to pay us hundreds of millions of dollars and not change a THING!”
-[open](https://x.com/Austen/status/1968336723529945160)
-
----
-
-There were a few things we didn’t love about the Gauntlet AI application process so team rebuilt the entire thing last night
-[open](https://x.com/Austen/status/1968297396175245571)
-
----
-
-Testing and will be deploying later today
-[open](https://x.com/Austen/status/1968297716070686887)
-
----
-
-Yes they are
-[open](https://x.com/Austen/status/1968294152736825689)
-
----
-
-Good riddance
-[open](https://x.com/Austen/status/1968289444831940649)
-
----
-
-Yes
-[open](https://x.com/Austen/status/1968287279396602172)
-
----
-
-Getting there
-[open](https://x.com/Austen/status/1968279564251254854)
-
----
-
-I have no idea how legit this all is, but as someone who lived in Washington County, Utah:
-
-“my vehicle” 
-
-“what my old man would do”
-
-“if I didn’t bring back grandpa’s rifle”
-
-is 1000% how a redneck in southern Utah would talk
-[open](https://x.com/Austen/status/1968139819445637623)
-
----
-
-Of all the things that are implausible here, the writing style isn’t one of them.
-
-Redneck southern Utahn who then spends way too much time on Reddit/discord and it kinda checks out
-[open](https://x.com/Austen/status/1968142569390608440)
-
----
-
-“I murdered him and it was premeditated, but I will have left no evidence” he messaged to his roommate in plain unencrypted discoverable text
-[open](https://x.com/Austen/status/1968133969683288221)
-
----
-
-You have to manually click “unsubscribe” on each one
-[open](https://x.com/Austen/status/1968083726887456940)
-
----
-
-This is the kind of change I bring to companies as well
-[open](https://x.com/Austen/status/1968061752215801867)
-
----
-
-So let me get this straight:
-
-You make $45k/month from the apps you made
-
-And you’ll tell me all of the secrets and share your full playbook with me
-
-But only if I retweet you and reply “playbook?”
-[open](https://x.com/Austen/status/1968061491544023429)
-
----
-
-Spending a few hours at the bank and post office today because regulators require insane stuff and haven’t updated the methods accepted for receiving it since 1965
-[open](https://x.com/Austen/status/1967985900287295533)
-
----
-
-“Complaining about not achieving success despite working hard is like complaining about an ice cube not melting when you heated it from twenty-five to thirty-one degrees.”
-
-- James Clear
-[open](https://x.com/Austen/status/1967808445329051783)
-
----
-
-Just apply to Gauntlet AI already
-[open](https://x.com/Austen/status/1967794817766957519)
-
----
-
-Not gonna lie if you’ve emailed me in the past 90 days and I didn’t respond that’s on me but you may have to email me again to get a response
-[open](https://x.com/Austen/status/1967786780536807572)
-
----
-
-If anyone is telling you the best engineers don’t use AI to write code they’re lying
-[open](https://x.com/Austen/status/1967782270389063927)
-
----
-
-Ontology
-[open](https://x.com/Austen/status/1967772817354788922)
-
----
-
-Holy smokes
-[open](https://x.com/Austen/status/1967731164267024384)
-
----
-
-Texas has 384k teachers so that’s .03% but still wild
-[open](https://x.com/Austen/status/1967732893347971245)
-
----
-
-Super excited to go back to still never eating at Cracker Barrel but this was fun
-[open](https://x.com/Austen/status/1967702063409926566)
-
----
-
-There are basically two political battlegrounds left that actually matter:
-
-1. The Internet
-2. Schools
-[open](https://x.com/Austen/status/1967684656360562934)
-
----
-
-One of the most important things we've learned about building with AI is first putting a "harness" around anything generated that is static, then letting AI fill in the details.
-
-AI will respect the harness. 
-
-When it's not there AI will do all sorts of crazy things.
-[open](https://x.com/Austen/status/1967668603358171171)
-
----
-
-Gauntleters report back 
-[open](https://x.com/Austen/status/1967663574890983499)
-
----
-
-In any given YC batch virtually every founder who didn’t start the top company would be better off financially if they joined the top startup in the batch.
-
-If only they knew with certainty who that would be.
-
-Power law at YC stage is ridiculous.
-[open](https://x.com/Austen/status/1967662932025807095)
-
----
-
-Neighbor: “You’re a tech guy, do you let your kids use unmonitored and unlimited internet?”
-
-lol.
-
-Lmfao.
-[open](https://x.com/Austen/status/1967632239031881841)
-
----
-
-Not sure if it’s easier to buy electronics worth more than $100 from Target or escape from prison but it’s gotta be close
-[open](https://x.com/Austen/status/1967593832817766707)
-
----
-
-Very lucky timing in retrospect
-[open](https://x.com/Austen/status/1967586612336116151)
-
----
-
-It’s as if you could simply store a tweet in a time capsule in 2003 and let it out randomly a couple decades later
-[open](https://x.com/Austen/status/1967421136737808773)
-
----
-
-Was the murder because of Halo?
-
-We should check his MySpace account
-[open](https://x.com/Austen/status/1967422213751283881)
-
----
-
-Nobody prepared me for how sad it is the first time your kids start saying something correctly after years of cute mispronunciation
-[open](https://x.com/Austen/status/1967407804618314203)
-
----
-
-Sankey diagrams will never be the same
-[open](https://x.com/Austen/status/1967375331297488965)
-
----
-
-Grill time
-[open](https://x.com/Austen/status/1967363180457541697)
-
----
-
-wtf is going on
-[open](https://x.com/Austen/status/1967328961773654392)
-
----
-
-Truly wild
-[open](https://x.com/Austen/status/1967330925903298571)
-
----
-
-We’re going to come close to “sold out” for the next Gauntlet AI cohort.
-
-Unique niches we want to find companies who want to hire for:
-
-1. AI + Software + Robotics combo
-
-2. AI Marketers (deep experience in marketing + mastering using AI)
-
-3. International AI eng (not in US)
-[open](https://x.com/Austen/status/1967255938836083029)
-
----
-
-If you’re looking to hire in one of those categories please shoot me a DM.
-[open](https://x.com/Austen/status/1967256368727073041)
-
----
-
-We’re going to do all of these because companies need them, but the scale we do them at will vary by level of company demand.
-[open](https://x.com/Austen/status/1967256577024676216)
-
----
+No content found for this user.
 
 ---
 
 # SecScottBessent
 
-I’m looking forward to meeting with Mexican government and industry representatives in Mexico City this week during my first international trip as Under Secretary. The Trump Administration is working to keep Americans safe by increasing cooperation to stop the flow of deadly
-[open](https://x.com/UnderSecTFI/status/1968373160295969211)
+Iran’s nuclear program poses a threat to our peace and prosperity. 
+
+@POTUS gave Tehran every opportunity to reach a deal, yet they remain unserious.
+
+The decision by the @UN Security Council to snapback sanctions against Iran is proof that the world will not kneel to Tehran’s
+[open](https://x.com/SecScottBessent/status/1972125231612367291)
 
 ---
 
-The Constitution turned thirteen colonies into one free nation.
-
-On this Constitution Day, We the People celebrate the courage of our Founders and renew our commitment to defending the freedoms they entrusted to us.
-[open](https://x.com/SecScottBessent/status/1968276046207414393)
+Counselor to @SecScottBessent @Lavorgnanomics discusses the benefits No Tax on Tips will have on Working Families thanks to @POTUS's One Big Beautiful Bill
+[open](https://x.com/USTreasury/status/1971985460693234068)
 
 ---
 
-President Trump has been right on the economy at every turn while the Fed has been consistently behind the curve.
-
-A 25bps cut is priced in tomorrow. We will see whether the Fed wants to go to neutral or become accommodative.
-[open](https://x.com/SecScottBessent/status/1968057304181563688)
+The One Big Beautiful Bill brings real relief for hardworking Americans: an extension of the Trump Tax Cuts and No Tax on Tips, Overtime, or Social Security.
+[open](https://x.com/SecScottBessent/status/1971679456642453890)
 
 ---
 
-This is absolutely correct from @SecScottBessent!  
-
-Earlier this year, @POTUS signed one of my deregulation bills into law, and I will continue to find ways to cut bureaucratic red tape and streamline processes.
-[open](https://x.com/RepBice/status/1968024618377286089)
+Counselor to @SecScottBessent @Lavorgnanomics: The real story was the consumer spending numbers. These are Trumpian-type numbers. We’re going to get these huge increases, and I said, you know, we’re going to see GDP marked up. Sure enough, the widely followed Atlanta Fed—which I
+[open](https://x.com/USTreasury/status/1971652995038220519)
 
 ---
 
-President Trump is cutting through the regulatory morass that kept America mired in economic stagnation. In his first term, regulations fell nearly 7 to 1. In his second term, the regulatory rollback will be even bigger.
+High Fed rates are crushing hardworking Americans.
 
-By slashing harmful regulations, the President will
-[open](https://x.com/SecScottBessent/status/1968019554740973688)
-
----
-
-Under President Trump, America is back.
-
-Talks with China are respectful and results-driven. @POTUS was ready to let TikTok go dark and made clear that we will never trade away national security. Thanks to his tough negotiating, a framework for a deal is in place, and China is
-[open](https://x.com/SecScottBessent/status/1967984285698363824)
+It’s time for real rate relief.
+[open](https://x.com/SecScottBessent/status/1971631013035233335)
 
 ---
 
-Iranian entities rely on shadow banking networks to evade sanctions and move millions through the international financial system. Under President Trump’s leadership, we will continue to disrupt these key financial streams that fund Iran’s weapons programs and malign activities in
-[open](https://x.com/UnderSecTFI/status/1967959623979106582)
+The positive economic data keeps pouring in — real consumer spending smashed expectations in August, further proof that President Trump’s pro-growth agenda is working for Americans. 
+
+President Trump’s successful economic policies continue to defeat the doomsday forecasts as he
+[open](https://x.com/PressSec/status/1971583785322918312)
 
 ---
 
-The Atlanta Fed projects 3%+ of real GDP growth in Q3. Private forecasters, meanwhile, project 2% growth this quarter. Yet the CBO remains stuck in a recessionary fantasy.
+In just 8 months, President Trump has changed the trajectory of our nation.
 
-Trump’s first term beat the CBO’s lowball forecasts with nearly 3% growth for 3 years and 3.4% growth in
-[open](https://x.com/SecScottBessent/status/1967693748642439440)
-
----
-
-Thank you, @realDonaldTrump, for your bold leadership. Only with a unified effort that cuts off the revenues funding Putin’s war machine at the source will we be able to apply sufficient economic pressure to end the senseless killing.
-[open](https://x.com/SecScottBessent/status/1966957083666116783)
+America is entering a new Golden Age of prosperity through energy dominance, smart tax policy, AI, and digital assets.
+[open](https://x.com/SecScottBessent/status/1971606822298788239)
 
 ---
 
-I’m hosting Bedtime Story Hour @TheStorySandbox Tomorrow THuRS 9/14 8pm EDT. Will you join me as we go a wholesome adventure to nourish our inner child?
-[open](https://x.com/ArcaneShip/status/1968115879478235264/analytics)
+President Trump has declared Antifa a domestic terrorist organization.
+
+Anyone caught funding or supporting this violence will be held accountable.
+[open](https://x.com/SecScottBessent/status/1971555432339784094)
+
+---
+
+.@SecScottBessent: 3.8% growth, the biggest in years. The important thing, as the President says, this is going to be noninflationary growth just like it was in his first term. Strong growth, low inflation, real wage gains... Small business optimism under President Trump last
+[open](https://x.com/USTreasury/status/1971320232535875906)
+
+---
+
+Financial literacy strengthens families, communities, and our economy. Thank you, @SecScottBessent, for your work as chair of the Financial Literacy Education Commission and for prioritizing financial literacy. Today’s meeting demonstrated our shared commitment to opportunity for
+[open](https://x.com/USComptroller/status/1971256235577253933)
+
+---
+
+ BREAKING: President Trump just signed a HUGE DEAL – the Executive Order that SAVES TIKTOK & protects Americans' data. 
+
+We're BACK - and BETTER than ever  http://TikTok.com/@Whitehouse
+[open](https://x.com/WhiteHouse/status/1971312721573576815)
+
+---
+
+No content found
+[open](https://x.com/USTreasury/status/1971317200003924300)
+
+---
+
+President @JMilei is restoring economic stability after decades of Argentine mismanagement.
+
+Markets are not losing confidence in him – they are looking in the rearview mirror.
+
+The @USTreasury is resolute in our support for his reforms.
+[open](https://x.com/SecScottBessent/status/1971282003371950084)
+
+---
+
+VLLC!
+[open](https://x.com/JMilei/status/1971183189986361607)
+
+---
+
+The United States of America is back.
+
+President Trump is solution-driven and will not accept the broken status quo of a failing government.
+
+He rightfully called out the UN’s failures on immigration, energy, and the economy because that’s what real leadership looks like.
+[open](https://x.com/SecScottBessent/status/1971243840075071631)
+
+---
+
+Yesterday, @POTUS and I spoke extensively with President @JMilei and his senior team in New York.  As President Trump has stated, we stand ready to do what is needed to support Argentina and the Argentine people.
+
+Under President Milei, Argentina has taken important strides
+[open](https://x.com/SecScottBessent/status/1970821535507026177)
+
+---
+
+Few should be surprised by @SenWarren’s self-pitying rendition of “Don’t Cry for Me Massachusetts.”
+
+The destructive economic policies she has championed since joining the Senate in 2013 rival the failed leftist agenda of the Argentine opposition. Should her political soulmate
+[open](https://x.com/SecScottBessent/status/1970518692103434580)
+
+---
+
+.@POTUS: In the event that Russia is not ready to make a deal to end the war, then the United States is fully prepared to impose a very strong round of powerful tariffs... But for those tariffs to be effective, European nations would have to join us in adopting the exact same
+[open](https://x.com/RapidResponse47/status/1970497379095703779)
+
+---
+
+.@POTUS at the UN: "On the world stage, America is RESPECTED again — like it has never been respected before."
+[open](https://x.com/RapidResponse47/status/1970493359581188324)
+
+---
+
+The One Big Beautiful Bill solidified the largest tax cut in our history for our nation's workers. Among other groundbreaking reforms, the bill codified No Tax on Tips. This historic tax break will ensure that America's working families keep more of their hard-earned income.
+[open](https://x.com/SecScottBessent/status/1970202675179594094)
+
+---
+
+Alexandre de Moraes is responsible for an oppressive campaign of censorship, arbitrary detentions, and politicized prosecutions—including against former President Jair Bolsonaro. Today’s action makes clear that @USTreasury will continue to target individuals who provide material
+[open](https://x.com/SecScottBessent/status/1970156867889274975)
+
+---
+
+Argentina is a systemically important U.S. ally in Latin America, and the @USTreasury stands ready to do what is needed within its mandate to support Argentina.
+
+All options for stabilization are on the table. 1/4
+[open](https://x.com/SecScottBessent/status/1970107351912075454)
+
+---
+
+We remain confident that President @JMilei’s support for fiscal discipline and pro-growth reforms are necessary to break Argentina’s long history of decline.
+
+My April comments make clear our commitment to Argentina's people and to President Milei. 3/4
+[open](https://x.com/SecScottBessent/status/1970108242522251304)
+
+---
+
+.@POTUS and I will meet with President Milei on Tuesday in Manhattan.
+
+More details will be available shortly after this meeting. 4/4
+[open](https://x.com/SecScottBessent/status/1970108245550535136)
+
+---
+
+USA! USA! USA!
+
+For Charlie. 
+[open](https://x.com/WhiteHouse/status/1969860136362508630)
+
+---
+
+Today, hundreds of thousands of Americans unite to honor Charlie Kirk—his vision, his mission, his impact, and his deep love for this nation.
+
+Charlie Kirk was one of one. A life devoted to faith, freedom, and America.  In tribute to Charlie:
+[open](https://x.com/WhiteHouse/status/1969783747139514536)
+
+---
+
+Great to see the OCC team in action on my first exam as @USComptroller. Appreciate the chance to see the difference Community Banks make in TN and in the US. @USOCC recognizes their importance and just announced the Community Bank focused supervision group.
+[open](https://x.com/USComptroller/status/1969149222525005839)
+
+---
+
+Today is an important day as the FHFA under Director @Pulte’s leadership joins the list of U.S government financial regulators withdrawing from NGFS.
+
+This is an important part of implementing @POTUS @realDonaldTrump’s agenda for unleashing American Energy.
+[open](https://x.com/SecScottBessent/status/1969102055806484954)
 
 ---
 
@@ -1631,175 +1892,149 @@ I’m hosting Bedtime Story Hour @TheStorySandbox Tomorrow THuRS 9/14 8pm EDT. W
 
 # RobertGreene
 
-You may have brilliant ideas, the kind that could revolutionize the world, but unless you can express them effectively, they will have no force, no power to enter people’s minds in a deep and lasting way.
-[open](https://x.com/RobertGreene/status/1968751891812389117)
+My second book, "The Art of Seduction" is on sale on Kindle for $2.89! 
+
+If you haven't yet, get your copy here: https://amzn.to/3IBqZkS
+[open](https://x.com/RobertGreene/status/1971585678980087991)
 
 ---
 
-If you work hard, you will make your way to the inner circle of knowledge. That is the end goal of mastery: an inside-out understanding.
-[open](https://x.com/RobertGreene/status/1968721692764815365)
+Face Your Fears.
+[open](https://x.com/RobertGreene/status/1970876486786982048)
 
 ---
 
-Don't be afraid of people rejecting you. Be different.
-[open](https://x.com/RobertGreene/status/1968706700808167511)
+If you want to watch more, subscribe to my YouTube channel here:
+[open](https://x.com/RobertGreene/status/1970876489114808569)
 
 ---
 
-The moment that you rest, thinking that you have attained the level you desire, a part of your mind enters a phase of decay.
-[open](https://x.com/RobertGreene/status/1968661324109623387)
+Making money or being successful should be a natural result of this ideal and not the goal itself.
+[open](https://x.com/RobertGreene/status/1970563829320069158)
 
 ---
 
-What matters is not education or money, but your persistence and the intensity of your desire to learn; that failures, mistakes, and conflicts are often the best education of all; and how true creativity and mastery emerge from all this.
-[open](https://x.com/RobertGreene/status/1968389531746578901)
+When people overtly display some trait, such as confidence or hypermasculinity, they are most often concealing the contrary reality.
+[open](https://x.com/RobertGreene/status/1970533633690915004)
 
 ---
 
-Always stick to what makes you weird, odd, strange, different. That’s your source of power.
-[open](https://x.com/RobertGreene/status/1968359308179177602)
+You are like a hunter: your knowledge of every detail of the forest and of the ecosystem as a whole will give you many more options for survival and success.
+[open](https://x.com/RobertGreene/status/1970518587417993609)
 
 ---
 
-Think back on the moments when you felt deeply and personally connected to an activity.
-
-Think about the pleasure it brought you.
-
-In such activities are signs of your true purpose.
-[open](https://x.com/RobertGreene/status/1968344226879656294)
+If everything in a dream were realistic, it would have no power over us; if everything were unreal, we would feel less involved in its pleasures and fears. Its fusion of the two is what makes it haunting.
+[open](https://x.com/RobertGreene/status/1970473262619783573)
 
 ---
 
-This is an excerpt from my latest book, "The Daily Laws". Get your copy here:
-[open](https://x.com/RobertGreene/status/1968344238850203768)
+To negate the ego you must adopt a kind of humility toward knowledge.
+[open](https://x.com/RobertGreene/status/1970201441257300109)
 
 ---
 
-Operating with long-term goals will bring you tremendous clarity and resolve.
-[open](https://x.com/RobertGreene/status/1968298914068766877)
+Knowledge is always progressing. Don’t let your ego fool you. You are always knowledge’s inferior.
+[open](https://x.com/RobertGreene/status/1970171258584354967)
 
 ---
 
-Examine the faults you see in others and how they are in you as well.
-[open](https://x.com/RobertGreene/status/1968027110481727886)
+My anger with the world today.
+
+From my conversation with @jordanbpeterson
+[open](https://x.com/RobertGreene/status/1970156302824521927)
 
 ---
 
-The higher up you go, the more insecure people get.
-[open](https://x.com/RobertGreene/status/1967997030044946742)
+Creating anything worthwhile is like a marathon, and you must train for it.
+[open](https://x.com/RobertGreene/status/1970110851668758658)
 
 ---
 
-We cannot separate this aggressiveness from the way we attack problems, alter the environment to make our lives easier, fight injustice, or create anything on a large scale.
-[open](https://x.com/RobertGreene/status/1967981826699645101)
+Immersing yourself in details will combat the generalizing tendencies of the brain and bring you closer to reality.
+[open](https://x.com/RobertGreene/status/1969839063495741653)
 
 ---
 
-Knowing what you want to accomplish in the end will help you weed out the essential from the nonessential.
-[open](https://x.com/RobertGreene/status/1967936520343703807)
+Most people don’t have the patience to absorb their minds in the fine points and minutiae that are intrinsically part of their work.
+
+They are in a hurry to create effects and make a splash; they think in large brush strokes.
+
+Their work inevitably reveals their lack of attention
+[open](https://x.com/RobertGreene/status/1969808858513305869)
 
 ---
 
-Remember that greater control over events will come from realistic assessments of the situation, precisely what is made most difficult by a brain submerged in trivia.
-[open](https://x.com/RobertGreene/status/1967664727070543895)
+Boredom is critical. Learn to be bored.
+[open](https://x.com/RobertGreene/status/1969793875490509263)
 
 ---
 
-Your task is to let go of the rigidity that takes hold of you as you overidentify with the expected gender role. Power lies in exploring that middle range between the masculine and the feminine, in playing against people’s expectations.
-[open](https://x.com/RobertGreene/status/1967634524059336876)
+The more skills you learn, the richer the landscape of the brain. It’s up to you.
+[open](https://x.com/RobertGreene/status/1969748454982443455)
 
 ---
 
-Have you read this book?
-[open](https://x.com/RobertGreene/status/1967619539862163898)
+Petulance is not power, it is a sign of helplessness. People may temporarily be cowed by your tantrums, but in the end they lose respect for you. They also realize they can easily undermine a person with so little self-control.
+[open](https://x.com/RobertGreene/status/1969476662409773234)
 
 ---
 
-Get a copy of Miyamoto Musashi's "Book of Five Rings" here:
-[open](https://x.com/RobertGreene/status/1967619551996387603)
+What has worth is worth paying for. By paying your own way you stay clear of gratitude, guilt, and deceit. It is also often wise to pay the full price—there is no cutting corners with excellence.
+[open](https://x.com/RobertGreene/status/1969446462477254799)
 
 ---
 
-Return to the harder or softer sides of your character that you have lost or repressed.
-[open](https://x.com/RobertGreene/status/1967574190871216585)
+Be truthful about yourself.
+[open](https://x.com/RobertGreene/status/1969431469715226730)
 
 ---
 
-When it comes to the ideas and opinions you hold, see them as toys or building blocks that you are playing with.
-
-Some you will keep, others you will knock down, but your spirit remains flexible and playful.
-[open](https://x.com/RobertGreene/status/1967302335530754146)
+What you want is a picture of a person’s character over time. Restrain from the natural tendency to judge right away, and let the passage of time reveal more and more about who people are.
+[open](https://x.com/RobertGreene/status/1969386065921523763)
 
 ---
 
-Develop the habit of examining in depth your own emotional responses. You will end up slowly eliminating unnecessary reactions.
-[open](https://x.com/RobertGreene/status/1967272160248152521)
+The greatest danger you face is your general assumption that you really understand people and that you can quickly judge them.
+
+Instead, you must begin with the assumption that you are ignorant and that you have natural biases that will make you judge people incorrectly.
+
+Each
+[open](https://x.com/RobertGreene/status/1969114272145031229)
 
 ---
 
-Rationality is something to be acquired by individuals, not by mass movements or technological progress.
+Identifying envious people.
 
-Feeling superior and beyond it is a sure sign that the irrational is at work.
-[open](https://x.com/RobertGreene/status/1967257033868210351)
-
----
-
-The human mind naturally freezes the relentless passage of time by presenting us with static images of people, our culture, and our own self-identity. But if we were truly sensitive to evolution, we would realize these are only passing shadows in a world of ceaseless flux.
-[open](https://x.com/RobertGreene/status/1967211739248054704)
+From my conversation with @RyanHoliday @dailystoic
+[open](https://x.com/RobertGreene/status/1969084183072199130)
 
 ---
 
-Every minute of every day we are aging; every encounter with others alters and shapes our ideas; we are a continuous work in progress, never quite the same.
-
-As Heraclitus once said, “You cannot step into the same river twice; it is not the same river, and you are not the same
-[open](https://x.com/RobertGreene/status/1966939947405086970)
+Read more in my book "The Laws of Human Nature" here:
+[open](https://x.com/RobertGreene/status/1969084195441164433)
 
 ---
 
-The dangers of success.
-[open](https://x.com/RobertGreene/status/1966909841299173469)
-
----
-
-Let go of the past and feel yourself carried along by the stream of life and all the power and energy that it will bring us in its wake.
-[open](https://x.com/RobertGreene/status/1966894650205368387)
-
----
-
-Contemplate any feelings of uncertainty and even discomfort and hold fast to them. Amid such uncertainty your dormant sense of wonder will begin to stir, and things will start to appear novel and surprising as they did when you were very young.
-[open](https://x.com/RobertGreene/status/1966849352506482789)
-
----
-
-Mastery is a process and discovering your calling is the starting point.
-[open](https://x.com/RobertGreene/status/1966577568091660664)
-
----
-
-Do something today that you used to love doing as a kid. Try to reconnect with your impulse voices.
-[open](https://x.com/RobertGreene/status/1966547362878562808)
-
----
-
-Every week, I send out my newsletter to 89,000+ readers and recommend three books.
+Every week, I send out my newsletter to 90,000+ readers and recommend three books.
 
 Here are my last three book recommendations:
 
-1. The Histories by Herodotus
-https://amzn.to/3IfcyCN
+1. The Mathematician's Mind by Jacques Hadamard
+https://amzn.to/3IeEOp1
 
-2. Howard Hughes: His Life and Madness by Donald L.Barlett & James Steele
-[open](https://x.com/RobertGreene/status/1966532278743679082)
-
----
-
-Get three new book recommendations each week by subscribing to my weekly newsletter, read by 89,000+ people:
-[open](https://x.com/RobertGreene/status/1966532291502698981)
+2. The Words of My Father: Love and Pain in Palestine by Yousef Bashir
+[open](https://x.com/RobertGreene/status/1969069010777243943)
 
 ---
 
-Look for this when entering a relationship.
-[open](https://x.com/RobertGreene/status/1966487102717407426)
+Get three new book recommendations each week by subscribing to my weekly newsletter, read by 90,000+ people:
+[open](https://x.com/RobertGreene/status/1969069023792087062)
+
+---
+
+Never take it for granted that your past successes will continue in the future. Actually, your past successes are your biggest obstacle: every battle, every war, is different, and you cannot assume that what worked before will work today.
+[open](https://x.com/RobertGreene/status/1969023686809436228)
 
 ---
 
@@ -1807,89 +2042,66 @@ Look for this when entering a relationship.
 
 # NutritionMadeS3
 
-These Foods Drive Cancer Risk
-
-8 common Cancer Myths fact-checked 
-full video: https://youtu.be/k_WqysSAZnY
-[open](https://x.com/NutritionMadeS3/status/1968692741040197699)
+absolutely brilliant rfk impersonation
+[open](https://x.com/NutritionMadeS3/status/1971361191466500364)
 
 ---
 
-RFK (a lawyer) told the CDC Director (a microbiologist) to mindlessly approve vaccine policies "regardless of the scientific evidence" or resign.
+Dr Robert Lustig gets Fact-checked by MD PhD Doctor
 
- She refused. 
+Lustig´s views on sugar, saturated fat, heart disease, LDL and much more get examined for their scientific accuracy
 
-So they fired her.
-
-We´re living in a mickey mouse world.
-[open](https://x.com/NutritionMadeS3/status/1968369169667350778)
-
----
-
-14 Signs you May have Hidden Diabetes (Most People Miss Them!)
-
-full video below 
-[open](https://x.com/NutritionMadeS3/status/1967610365845594211)
+full video below
+[open](https://x.com/NutritionMadeS3/status/1971244348315717834)
 
 ---
 
 youtube.com
-[open](https://x.com/NutritionMadeS3/status/1967610400851284465)
+[open](https://x.com/NutritionMadeS3/status/1971244371678032074)
 
 ---
 
-We´re witnessing a ruthless expulsion of a nation of people from their homes by an occupying foreign power
-
-Inhumane, unacceptable, immoral
-
-This needs to stop
-
-If you´re uncomfortable with me speaking out, I suggest unfollow/block. Staying silent = complicity. Not gona happen 
-[open](https://x.com/NutritionMadeS3/status/1967385738028429604)
+This "provaxxers vs antivaxxers" debate blew me away by how shockingly unprepared the 2 "vaccine skeptics" were. Anecdotes, stories and unfamiliarity with the basics from the get-go. I thought they would try to feign knowledge or have some interesting Qs. Nope
+[open](https://x.com/NutritionMadeS3/status/1970523377115763140)
 
 ---
 
-For the folks who are still mindlessly repeating "they r fighting hamas", please wake up. they snipe children, journalists and doctors. bomb refugee camps. destroyed every single hospital
+2020: "what if we inject COVID patients with disinfectant"
 
-wake up
+2025: "I don´t recommend this drug I can´t pronounce"
 
-goal=expel gazans + take the land. they say it openly
-[open](https://x.com/NutritionMadeS3/status/1967606778490999045)
+"The vaccine schedule should change. This is based on how I feel"
 
----
-
-just in case there´s anyone who still believes it´s "about the hostages". they rejected every offer to return the hostages going back to Oct 8. They assassinated negotiators during cease fire meetings
-
-even a child could see thru it at this point. goal=take all of palestine
-[open](https://x.com/NutritionMadeS3/status/1967607999419257202)
+When Trump, RFK and Dr Oz walk out I expect scientific brilliance but I´m starting to wonder...
+[open](https://x.com/NutritionMadeS3/status/1970281533945602097)
 
 ---
 
-Elon Musk telling his gullible followers to fight those guys over there like he´s on their side is literally the cookie meme
-[open](https://x.com/NutritionMadeS3/status/1967383073567428778)
+I reacted to the most brutal comments I´ve ever gotten on Youtube  including such themes as "pharma shill", "fraud", being out of shape and miscellaneous other insults :)
+
+full video: https://youtu.be/UP5bCCVe6Y0
+[open](https://x.com/NutritionMadeS3/status/1970202707722903769)
 
 ---
 
-Guns cause thousands of deaths every year
-
-Vaccines save millions
-
-Guess which one the US is about to restrict access to?
-
-A country in rapid decline
-[open](https://x.com/NutritionMadeS3/status/1966937090933051491)
+full video:
+[open](https://x.com/NutritionMadeS3/status/1970211349394231502)
 
 ---
 
-for the folks unfamiliar with the upcoming restrictions
-[open](https://x.com/NutritionMadeS3/status/1966989336685007176)
+Portugal officially recognized the Palestinian state today!
+
+Australia, Canada, France, UK also plan to join the 75% of international community that already do
+
+Won´t magically stop the genocide or occupation overnight but meaningful steps!
+[open](https://x.com/NutritionMadeS3/status/1969763813776896193)
 
 ---
 
-RCT of acupuncture suggests benefit for chronic lumbar pain
+French President: "The objective is not to dismantle Hamas but to kill the possibility of a 2 state (solution) and deny the right of Palestinians to live in peace"
 
-caveat: didn´t have a sham group so placebo effect not ruled out
-[open](https://x.com/NutritionMadeS3/status/1966618432033399139)
+This has been obvious for decades but I hadn´t seen Western leaders admit it so openly. Things are changing
+[open](https://x.com/NutritionMadeS3/status/1969685015509221546)
 
 ---
 
@@ -1897,388 +2109,613 @@ caveat: didn´t have a sham group so placebo effect not ruled out
 
 # cremieuxrecueil
 
-Agreed
-[open](https://x.com/cremieuxrecueil/status/1968937262244093967)
+My latest article analyzes the question:
+
+Can we end the obesity epidemic with GLP-1s?
+
+The answer is clear: Yes!
+
+Link below.
+[open](https://x.com/cremieuxrecueil/status/1972445704250667151)
 
 ---
 
-Check out this new paper from @rosiget on portability of polygenic predictions across ancestries for a wide range of traits, including social and behavioral traits. Robel also looked at whether family-gwas derived predictors did better across ancestries: short answer, no, with
-[open](https://x.com/AlexTISYoung/status/1968809747425153199)
+Inside the GLP-1 Gold Rush with Eli Lilly CEO Dave Ricks
+
+-- New Breakthroughs
+-- Addiction & Mental Health Potential
+-- Pricing
+-- Chinese "patent hacking"
+-- Big Pharma's influence on the media
+++ much more
+
+(0:00) Introducing Eli Lilly CEO Dave Ricks
+
+(1:43) How Eli Lilly
+[open](https://x.com/theallinpod/status/1972503927485534516)
 
 ---
 
-Smarter people are at a lower risk of being bipolar, contrary to popular stereotypes.
-
-But there's a curious qualifier:
-
-The benefits of IQ for bipolar only go up to a limit for people with pure bipolar disorder, without comorbidities. Thereafter, no additional protection!
-[open](https://x.com/cremieuxrecueil/status/1968839625604030907)
+How many African slaves were brought to North America to the nearest number?
+[open](https://x.com/cremieuxrecueil/status/1972459483533312470)
 
 ---
 
-Source:
-[open](https://x.com/cremieuxrecueil/status/1968839628498018579)
+Answer is in here:
+[open](https://x.com/cremieuxrecueil/status/1972459485097836892)
 
 ---
 
-Despite there being a lot of environmental doom and gloom, we are making environmental progress all the time now.
+It's probably too compromised now, but let's see.
 
-For example, America's rivers and streams have gotten a lot cleaner since the 1960s.
-[open](https://x.com/cremieuxrecueil/status/1968839113420808330)
-
----
-
-Source:
-[open](https://x.com/cremieuxrecueil/status/1968839116172284387)
+How many African slaves were brought to North America, not including the Caribbean, to the nearest number?
+[open](https://x.com/cremieuxrecueil/status/1972473519230611755)
 
 ---
 
-You have a pair of identical twins and one of them has gone through more school than the other one.
-
-Which twin would you predict knows more about politics?
-
-You might think it's the more educated twin, but in reality, they tend to be similarly knowledgeable.
-[open](https://x.com/cremieuxrecueil/status/1968836521089204465)
+Those who advocate for vehicle automation are on the right side of history
+[open](https://x.com/WholeMarsBlog/status/1972466535911567848)
 
 ---
 
-Source:
-[open](https://x.com/cremieuxrecueil/status/1968836523832349049)
+Correct...
+
+But this is why the Catholic Church historically attempted to crush cousin marriage.
+
+When you have strong clans, extended families, etc., you allow create strong rivals to the state, and thus to the Church. So they banned it.
+
+This gave us the modern West!
+[open](https://x.com/cremieuxrecueil/status/1972422863899807848)
 
 ---
 
-I’m pleased to announce that San Francisco now has a shrine to Saint Carlo Acutis and a prayer of intercession for programming problems!
+Also, sadly, I predicted this.
 
-Carlo was an Italian teenager who built several influential websites sharing the miracles of the faith in the early 2000s. He passed away from
-[open](https://x.com/growing_daniel/status/1968822572285645001)
+Unfortunately, when someone offered me a small bet on this outcome, I didn't take it because I was too unconfident and I had hope that Britain would manage to reject cousin marriage.
 
----
-
-Researchers would be better off if, instead of engaging in unrealistic simulations, they thought about empirical ways of testing their ideas.
-
-In the right hands, simulations are great intuition pumps. In the wrong ones, they dazzle others and kill your critical thinking ability.
-[open](https://x.com/cremieuxrecueil/status/1968825869306114173)
+Always take risks!
+[open](https://x.com/cremieuxrecueil/status/1972423127666975165)
 
 ---
 
-I'm going to speculate that the main issue is not that people don't want to do realistic simulations, but that they don't know how.
+Thread.
 
-The real world is frequently far too complex to contradict empirical work with the results of simple simulations.
+On the left, you can see a map of corruption indexed by the number of mob crimes per 100,000. On the right, you can see corruption indexed by how much people steal from the public purse.
 
-Example: https://cremieux.xyz/i/136231446/in-simulations…
-[open](https://x.com/cremieuxrecueil/status/1968827280236359798)
+And in the middle, a map of inbreeding.
 
----
-
-Teen depression has *declined* for the past 4 years, after peaking in 2021.
-
-People should update on this.
-
-The most parsimonious explanation is @glukianoff's theory that wokeness encouraged catastrophic thinking, acting as a sort of “reverse CBT”.
-[open](https://x.com/Chris_Said/status/1968460412774490591)
+Clannish people do clannish crimes.
+[open](https://x.com/cremieuxrecueil/status/1972456850026291218)
 
 ---
 
-The sample size I have for the GLP-1RA comparison is insufficient (61 sema/109 tirz/270 reta), but I'm willing to bet the result directionally holds up and eventually becomes significant as I gather more data.
+Here is the BMI distribution by sex in the United States.
 
-But I want to see if this intuition is shared. Poll below.
-[open](https://x.com/cremieuxrecueil/status/1968800713619767668)
+Curiously, this is one of a few traits where women tend to be more variable than men!
 
----
-
-Will individuals taking retatrutide lose a lower percent of weight as muscle mass than those taking tirzepatide, and will those on tirzepatide lose less weight as muscle mass than those taking semaglutide?
-
-Note: the finding *can* be due to confounding.
-[open](https://x.com/cremieuxrecueil/status/1968800716798951429)
+What would happen if we gave everyone over a BMI of 30 access to drugs like Ozempic?
+[open](https://x.com/cremieuxrecueil/status/1972447580136329342)
 
 ---
 
-This place once got in trouble because of its brochures that showed that the management was maybe too aware of its clientele.
+If the rates are cut by 75%, then we've basically won against obesity.
 
-They figured out what ethnicity shoppers call themselves and people got really mad. The domain is frequented by the "Anglo, Jewish, or Asian".
-[open](https://x.com/cremieuxrecueil/status/1968796070730699182)
-
----
-
-Sounds like a nice place!
-[open](https://x.com/cremieuxrecueil/status/1968796072907567611)
+Through the power of modern pharmacotherapy, we can effectively end the obesity epidemic, and we can do so safely, saving lives, enhancing American productivity, and making the country a more beautiful place.
+[open](https://x.com/cremieuxrecueil/status/1972447597437817296)
 
 ---
 
-Trump has finally managed to get his appointees through the Senate through months and months of Democratic stalling.
-
-Frankly, this should've happened earlier.
-
-It is extremely annoying to obstruct Presidential nominees.
-[open](https://x.com/cremieuxrecueil/status/1968793120553779528)
+If you want to learn a lot more about this, go check out my latest article:
+[open](https://x.com/cremieuxrecueil/status/1972447601468612900)
 
 ---
 
 Link:
-[open](https://x.com/cremieuxrecueil/status/1968793122478936065)
+[open](https://x.com/cremieuxrecueil/status/1972445706528153672)
 
 ---
 
-It is deeply funny to hear people seriously saying things like
+It's morbidly funny when people pretend that they don't understand this rather obvious difference.
 
-'When the left is back in power, they'll use the tools Republicans are using.'
+Burn a bible, nothing happens. Burn the Qur'an, welp.
 
-and
-
-'Now that Trump's purged a bunch of Democrats from federal agencies, the Democrats are going to remove Republicans from them.'
-[open](https://x.com/cremieuxrecueil/status/1968791221490311411)
+But pretending to not understand the obvious is a great way to avoid debate, so people who can't win the argument love it.
+[open](https://x.com/cremieuxrecueil/status/1972434886498849039)
 
 ---
 
-Only about half of Americans have an up-to-date passport.
-
-The number has steadily risen from ~5% in 1990 to almost half today.
-[open](https://x.com/cremieuxrecueil/status/1968790422404120928)
+Beaten to the punch.
+[open](https://x.com/cremieuxrecueil/status/1972438016905150882)
 
 ---
+
+Related:
+[open](https://x.com/cremieuxrecueil/status/1972438749809394126)
+
+---
+
+The rest of this Nikole Hannah-Jones article is as gross as its beginning. Its purpose is to morally shame anyone who would feel sad for Kirk as a racist and a bad Christian.
+
+She praises a father for intervening after his daughter felt too upset about Kirk's murder, while being
+[open](https://x.com/BlakeSNeff/status/1972376478143988044)
+
+---
+
+There's even more evidence that GLP-1RAs work worse for diabetics.
+
+This study looked explicitly at it from multiple angles.
+
+For example, persons with a clearly diabetic Hba1c level (≥7, much higher than 6.5) lose less weight than people whose blood sugar isn't as messed up.
+[open](https://x.com/cremieuxrecueil/status/1972429293180584319)
+
+---
+
+Additionally, something I've noted before is that insulin resistant people have worse weight loss experiences.
+
+When they lose weight, they tend to lose a larger share of that weight as lean mass.
+[open](https://x.com/cremieuxrecueil/status/1972429306346537427)
+
+---
+
+In many ways, diabetes is bad for weight loss! It makes it harder and it makes it worse.
+
+We need to do more to prevent it entirely.
 
 Sources:
 
-https://statista.com/statistics/804430/us-citzens-owning-a-passport/…
-[open](https://x.com/cremieuxrecueil/status/1968790426573312032)
+https://thelancet.com/journals/eclinm/article/PIIS2589-5370%2824%2900204-9/fulltext…
+
+https://onlinelibrary.wiley.com/doi/10.1038/oby.2008.637…
+[open](https://x.com/cremieuxrecueil/status/1972429311421653388)
 
 ---
 
-Three people have asked me about this now, so let me be clear:
+It's true that British Pakistanis are afflicted by substantially higher rates of genetic issues due to inbreeding.
 
-The vaccine schedule was not updated to remove measles vaccination.
-
-The committee just got rid of using the MMRV vaccine and instead suggested separate MMR + V vaccination because MMRV was causing seizures.
-[open](https://x.com/cremieuxrecueil/status/1968788866904842299)
+The rate of inbreeding has been on the decline, but it's still insanely high. For example, I once cited this on the Born in Bradford study:
+[open](https://x.com/cremieuxrecueil/status/1972423707428786429)
 
 ---
 
-And yes, it is a shame that the hep-b update was undertaken.
-
-People don't really understand the calculus behind vaccinating when vaccination has substantially reduced background risk, and as a result, background risk often gets raised through bad decisions like this.
-[open](https://x.com/cremieuxrecueil/status/1968789267078906111)
+From this thread:
+[open](https://x.com/cremieuxrecueil/status/1972423710146691448)
 
 ---
 
-Could HGH supplementation in children improve IQ?
+A related concept is that effects can certainly be real without knowing mechanisms.
 
-Some studies: https://lesswrong.com/posts/4hCca952hGKH8Bynt/nina-panickssery-s-shortform?commentId=TwKFnfoNes4Ccbm5J…
-[open](https://x.com/NinaPanickssery/status/1968782234552266853)
+For example, we know that acetaminophen (Tylenol) definitely works for managing fever and pain.
 
----
-
-Different forecasting methods all agree:
-
-There's a slowdown in life expectancy improvement.
-
-We've mostly started living longer because we've eliminated early-life causes of mortality. But when those run out, we have to make biotech progress if we want to live longer.
-[open](https://x.com/cremieuxrecueil/status/1968783003666022861)
+Despite being used for more than a century, we still don't know the mechanism behind it.
+[open](https://x.com/cremieuxrecueil/status/1972393059032940811)
 
 ---
 
-Source:
-[open](https://x.com/cremieuxrecueil/status/1968783006199341512)
+Mechanistic evidence requires statistical evidence to get us to working drugs, but statistical evidence does not require mechanistic evidence.
 
----
-
-Men who get married tend to earn higher wages.
-
-The male twin in a pair who gets married tends to earn higher wages.
-
-But this doesn't mean marriage has a causal effect, because twins differ and this control doesn't remove confounding.
-
-Within persons, goodbye marriage premium!
-[open](https://x.com/cremieuxrecueil/status/1968781860852375825)
-
----
-
-The more interesting thing in this study was the difference-in-differences result.
-
-There, the idea is to estimate the within-person plus within-pair effect. I'm not sure why that would differ from the more basic within-person estimate, but we'd need huge samples to know.
-[open](https://x.com/cremieuxrecueil/status/1968781865499709755)
-
----
-
-You can learn more here:
-[open](https://x.com/cremieuxrecueil/status/1968781866887942349)
-
----
-
-Is America's adoption of industrial robots destroying American jobs?
-
-Studies suggest the opposite.
-
-But it is destroying jobs in Mexico.
-[open](https://x.com/cremieuxrecueil/status/1968780126985826507)
-
----
-
-Automation can help with reshoring!
-
-Go read the article:
-[open](https://x.com/cremieuxrecueil/status/1968780128730730934)
-
----
-
-Prime-age labor force participation seems fine.
-
-General unemployment is not on the rise in some manner attributable to automation, either.
-[open](https://x.com/cremieuxrecueil/status/1968778615627059313)
-
----
-
-Sources: 
-
-https://fred.stlouisfed.org/series/LNS11300060…
-[open](https://x.com/cremieuxrecueil/status/1968778618911244766)
-
----
-
-Eventually, when humans are out of the driver's seat, driverless cars will be able to go extremely fast.
-
-But having slow humans driving around acts as an unfortunate limiter.
-[open](https://x.com/cremieuxrecueil/status/1968770321030262990)
-
----
-
-Traditionally, husbands work more hours in the labor market and wives do more of the chores at home.
-
-But the gap has been shrinking substantially over time.
-
-Between 1975 and 2018, both gaps practically halved:
-[open](https://x.com/cremieuxrecueil/status/1968767846009229424)
-
----
-
-If you want to learn more, check out this article:
-[open](https://x.com/cremieuxrecueil/status/1968767847993114940)
-
----
-
-It's really nice going to a party with people you haven't seen in a while, and learning that now everyone seems to be skinny.
-
-Most people who were fat in my circles are no longer fat, and that's very pleasant.
-[open](https://x.com/cremieuxrecueil/status/1968766773676618034)
-
----
-
-So many lives are being saved thanks to the rapid growth of driverless taxi usage.
-
-Look at that stunning eight-fold increase in just one year:
-[open](https://x.com/cremieuxrecueil/status/1968742789237162354)
+It's nice to understood why things work, but it's unnecessary to know that they do work and to evaluate their safety and whatnot.
+[open](https://x.com/cremieuxrecueil/status/1972393061855687011)
 
 ---
 
 Source:
-[open](https://x.com/cremieuxrecueil/status/1968742791858524466)
+[open](https://x.com/cremieuxrecueil/status/1972393063487283452)
 
 ---
 
-You're innocent of a crime, but you're on trial. You would rather face
-
-- A jury of your peers in a case without much cleanly exculpatory evidence
-- A judge using published social science research to develop priors that will inform his judgment on you
-[open](https://x.com/cremieuxrecueil/status/1968740744883064867)
+You consider yourself a rootless cosmopolitan
+[open](https://x.com/cremieuxrecueil/status/1972391102759178312)
 
 ---
 
-We need a name for the phenomenon where someone "simulates" something that doesn't correspond at all to reality in order to make a strong statement about reality.
-
-One of my favorite examples was a paper that showed that if people illogically discriminated, DEI was good.
-[open](https://x.com/cremieuxrecueil/status/1968733876261380521)
+There's a funny variety of post where people act like if you're not spending all day calling out every bad thing, that when you call out one bad thing, you're somehow inconsistent.
+[open](https://x.com/cremieuxrecueil/status/1972380526955905481)
 
 ---
 
-This is a real paper, not just a joke about making bad assumptions: https://users.ox.ac.uk/~econ0628/DEI.pdf…
-[open](https://x.com/cremieuxrecueil/status/1968733878933205194)
+Do you know what it means for a research paradigm to be "degenerate"?
+[open](https://x.com/cremieuxrecueil/status/1972379771423408561)
 
 ---
 
-There's just something *weird* about simulations
+One of my favorite examples of confounding is for drinking alcohol during pregnancy and kids' subsequent academic achievement.
 
-People really seem to think they provide arguments with credibility, provide them with authority, but they're usually not surprising
+Drinking beer -> related to worse outcomes.
 
-Instead, they tend to just reflect assumptions the arguer wanted to treat as facts in evidence
-[open](https://x.com/cremieuxrecueil/status/1968736641830309984)
+Drinking wine -> related to better outcomes.
 
----
-
-Double the property tax.
-[open](https://x.com/cremieuxrecueil/status/1968709414988177497)
+Flip to an IV model, get the true effect -> both are bad.
+[open](https://x.com/cremieuxrecueil/status/1972378239160156513)
 
 ---
 
-This is the moderate position.
-[open](https://x.com/cremieuxrecueil/status/1968710253672845467)
+Richer, better off mothers drink wine, and lower-class mothers drink beer.
+
+This confounding is so strong that it overwhelms the causal, negative impact of any alcohol drinking.
+
+In fact, it overwhelmed the fact that higher-class mothers drank more during pregnancy in general!
+[open](https://x.com/cremieuxrecueil/status/1972378243472007645)
 
 ---
 
- Works in Progress Issue 20 is now live!
-
-· Sulphur dioxide as sunscreen for the Earth
-· Why science needs outsiders
-· How UVC light could eliminate the common cold
-· RIVERS ARE NOW BATTLEFIELDS
-· Repeating France's gigantic nuclear buildout
-
-Read it all at
-[open](https://x.com/s8mb/status/1968667526348320844)
+Source:
+[open](https://x.com/cremieuxrecueil/status/1972378244977721820)
 
 ---
 
-Individual beliefs predict actions...
-[open](https://x.com/cremieuxrecueil/status/1968461151290700105)
+Unchecked extreme rhetoric, like labels as Hitler or fascist, will foment more extreme outcomes.
+
+Political violence is always wrong—no exceptions.
+
+We must all turn the temperature down.
+[open](https://x.com/SenFettermanPA/status/1972331631622185255)
 
 ---
 
-Beginning in 1930, a Chinese couple started going around the country on a road trip.
+Women are able to better mask symptoms of autism.
 
-They visited 251 hotels and restaurants. 91% of hotels and 93% of restaurants said no Orientals allowed.
+Accordingly, when a woman in the family has autism, that signals a higher genetic burden for autism than if a man in the family has autism.
 
-To the nearest percent, how many of these establishments refused to give them service?
-[open](https://x.com/cremieuxrecueil/status/1968463223360774643)
-
----
-
-Are you familiar with the famous study that this data is from?
-[open](https://x.com/cremieuxrecueil/status/1968466735675125797)
+Siblings of autistic women are more likely to be autistic than siblings of autistic men!
+[open](https://x.com/cremieuxrecueil/status/1972366894717145373)
 
 ---
 
-Imagine a fully loaded 737 fully crashing every 48h, killing everyone on board. 
+But luckily, thanks to clearer findings like this, we know it's not just a phenotyping issue, unless we want to redefine autism.
 
-That is how many people die in car crashes. If self driving cars were only 10% safer than humans they would still save many, many lives.
-[open](https://x.com/bscholl/status/1968461428009861421)
+Side note: obviously this just has to do with non-de novo-caused autism (a large share!).
 
----
+Sources:
 
-Another late night host is down.
-[open](https://x.com/cremieuxrecueil/status/1968445033142448529)
+https://x.com/cremieuxrecueil/status/1772057765352984964…
 
----
-
-Pretty neat:
-
-Another example of global admixture analysis by other means.
-
-https://x.com/billywoom/status/1968331097630261693…
-[open](https://x.com/cremieuxrecueil/status/1968439666505375811)
+https://jamanetwork.com/journals/jamapediatrics/fullarticle/2654599…
+[open](https://x.com/cremieuxrecueil/status/1972366900228231671)
 
 ---
 
-No sibling control, so no causal interpretation, but oh well.
-
-In general, within-sibling skin color analysis shows no significant effect. I've posted about this a lot before.
-
-Modern example:
-[open](https://x.com/cremieuxrecueil/status/1968439667755237727)
+A great point here:
+[open](https://x.com/cremieuxrecueil/status/1972368886424359055)
 
 ---
 
-And here's a not-so-modern example that's quite compelling.
+Mayor Adams doing this shows that he really loves New York and cares for its people.
 
-This one is based off of Census data and it's impressively null:
-[open](https://x.com/cremieuxrecueil/status/1968439669353296205)
+He knows that electing a socialist would be devastating for the city he loves.
+
+It's a great display of character. Thank you, Mayor!
+[open](https://x.com/cremieuxrecueil/status/1972368271358996648)
+
+---
+
+'Once again proving that the optimal amount of bribery is non-zero.'
+[open](https://x.com/cremieuxrecueil/status/1972364386888294536)
+
+---
+
+>popular conservative Christian gets assassinated by someone mentally broken by this sort of rhetoric
+
+>everyone now realizes this rhetoric is a call for violence
+
+>Newsom does it with that in mind
+[open](https://x.com/cremieuxrecueil/status/1972329161407742418)
+
+---
+
+You think a fatwa is dangerous? It's just words, bro. Christians condemn people all the time. It's the same thing!
+[open](https://x.com/cremieuxrecueil/status/1972353016910274996)
+
+---
+
+I love the "Mute this conversation" button. What a timesaver!
+[open](https://x.com/cremieuxrecueil/status/1972363226253078977)
+
+---
+
+You think a fatwa is dangerous? It's just words, bro. Christians condemn people all the time. It's the same thing!
+[open](https://x.com/cremieuxrecueil/status/1972352599652479295)
+
+---
+
+Thank you, Mayor Adams!
+
+It's time for Cuomo!
+[open](https://x.com/cremieuxrecueil/status/1972350382732083309)
+
+---
+
+Pool repair guy comes over to repair the pool light
+
+Takes it out
+
+Admits he doesn't know how to fix it
+
+Or put it back
+
+Leaves
+[open](https://x.com/cremieuxrecueil/status/1972133217940787369)
+
+---
+
+"I also oppose rent-seeking and affirmative action!"
+[open](https://x.com/cremieuxrecueil/status/1972066159777534456)
+
+---
+
+"Ma'am, you're on trial for murdering a police officer in cold blood."
+[open](https://x.com/cremieuxrecueil/status/1972064776756060637)
+
+---
+
+Once again, the pedestrians are just walking in front of the Waymos.
+[open](https://x.com/cremieuxrecueil/status/1972055217391964505)
+
+---
+
+What Dr. Oz misses is that he grew up when autistic kids were just a 'weird'
+
+When you go and measure people with modern criteria, there's no significant age-related discrepancy
+
+I know for a fact that Dr. Oz interacts with an autistic man regularly, he must just not recognize it
+[open](https://x.com/cremieuxrecueil/status/1971999391352606936)
+
+---
+
+And yes, the HHS is aware that, meta-analytically, community prevalence estimates have shown convergence across 'Adult' and 'Child' sample rates through the DSM-IV.
+
+Perhaps someone failed to inform Dr. Oz though!
+
+Learn more here:
+[open](https://x.com/cremieuxrecueil/status/1971999394095681969)
+
+---
+
+Whenever anyone shows you some shocking national statistic from Africa, remember that for many countries in Africa, the only source of maternal mortality data is a survey done by Americans.
+
+In an even larger portion of the globe, they don't even know what people die of.
+[open](https://x.com/cremieuxrecueil/status/1971996926972510238)
+
+---
+
+Statistics from so much of the world are fake or little better because that's all they can be
+
+Many places have not developed the vital statistics infrastructure needed to gather data that Westerners consider basic. Consider India: they only logged 10% of causes of death 2007-17!
+[open](https://x.com/cremieuxrecueil/status/1971996930843857027)
+
+---
+
+As countries develop, they tend to work on this infrastructure because it's so important. But many aren't there yet.
+
+Source:
+[open](https://x.com/cremieuxrecueil/status/1971996932425109572)
+
+---
+
+Youth is the source of innovation. One way to quantify this, somewhat problematically, is by looking at patent rates. These show a peak around age 35, with an optimal age range say around 30 to 45. For software related industries, the optimal age is probably a bit younger.
+[open](https://x.com/KirkegaardEmil/status/1971384572211495138)
+
+---
+
+Let's goooo
+[open](https://x.com/cremieuxrecueil/status/1971985644772905188)
+
+---
+
+It's true that the less than three dozen countries that track autism have more autism diagnoses, yes.
+[open](https://x.com/cremieuxrecueil/status/1971983746342781271)
+
+---
+
+The first of these follows the Bradlaugh-Besant trial, which popularized modern family planning across the British world.
+
+The second is the advent of no-fault divorce with the Divorce Reform Act. Notice its effect on marriage rates:
+[open](https://x.com/cremieuxrecueil/status/1971978069402640581)
+
+---
+
+These are both fascinating periods of history. Go read my article on them:
+[open](https://x.com/cremieuxrecueil/status/1971978072112222608)
+
+---
+
+Mooooom come pick me up, they're celebrating murderers again
+[open](https://x.com/cremieuxrecueil/status/1971973668520841438)
+
+---
+
+And yet:
+
+– “studies that replicate are cited at the same rate as studies that do not” [in psychology] 
+
+– "80% of papers citing retracted research were published after the retraction date" [on covid]
+
+– "notorious fraud Brian Wansink racked up 2500 citations in 2020, two years
+[open](https://x.com/DellAnnaLuca/status/1971922950019272995)
+
+---
+
+Denmark's politicians are in step with the public on immigration. Perhaps this is why they don't have a vigorous far right, suggests @mrianleslie citing @jburnmurdoch.
+[open](https://x.com/NathanpmYoung/status/1971876117016727982)
+
+---
+
+Anti-vaxxers try to play a rigged game.
+
+When you show them that each vaccination doesn't have the effects they've suggested, they fall back to claiming you need a perfect test, that you need a study of, say, ten injections at once.
+
+But they never have to supply any evidence.
+[open](https://x.com/cremieuxrecueil/status/1971820452365345022)
+
+---
+
+Or you can note some fact like that we can decompose the entirety of the rise in autism rates into a non-liability share, and they'll just keep talking about mechanisms this and rat studies that, even though those things can't be involved.
+
+But this never goes anywhere!
+[open](https://x.com/cremieuxrecueil/status/1971820459584073982)
+
+---
+
+No content found
+[open](https://x.com/cremieuxrecueil/status/1971821033281007679)
+
+---
+
+This is extremely typical, by the way
+
+Most drugs have 'excellent' preclinical evidence, lots of suspicions about what mechanisms might be, lots of 'strong evidence' on the mechanistic side
+
+And yet, they usually fail
+
+Genetic evidence can be used to cut the failure rate though!
+[open](https://x.com/cremieuxrecueil/status/1971792645258420293)
+
+---
+
+But for some reason, despite mechanistic reasoning being such a poor scientific tool, people still love doing it.
+
+They love thinking that it can fill in for real, statistical evidence.
+
+But it cannot. Elaborate theories routinely crumble in the face of empirical evidence.
+[open](https://x.com/cremieuxrecueil/status/1971792650908192983)
+
+---
+
+One of the really unfortunate things is that people have gotten away with using mechanistic reasoning to get drugs disqualified, even though it's a form of merely anecdotal evidence.
+
+Sources:
+
+https://gwasstories.com/p/human-genetics-and-drug-development…
+
+https://cremieux.xyz/p/the-23andme-deal…
+
+https://bmcmedicine.biomedcentral.com/articles/10.1186/s12916-016-0553-2…
+[open](https://x.com/cremieuxrecueil/status/1971792652715937932)
+
+---
+
+
+
+nothing makes americans more patriotic than listening to keir starmer
+[open](https://x.com/cremieuxrecueil/status/1971782000710144140)
+
+---
+
+Remember, Petro Gustavo is an international super lolcow who has sex with prostitutes and has spent half his life with coke up his nose.
+
+His most recent scandal before this one was appointing porn stars as ministers.
+[open](https://x.com/cremieuxrecueil/status/1971767737417658684)
+
+---
+
+I'm sure there are some bad things about him too.
+[open](https://x.com/cremieuxrecueil/status/1971769218296434931)
+
+---
+
+Let's go!
+[open](https://x.com/cremieuxrecueil/status/1971746885871587537)
+
+---
+
+Via:
+[open](https://x.com/cremieuxrecueil/status/1971746888979567063)
+
+---
+
+When people say they only want to fund economically useful degrees, there are inevitably some people who come out of the woodwork and suggest this means ridding ourselves of the humanities.
+
+But the humanities existed—and were better, frankly!—before mass university attendance.
+[open](https://x.com/cremieuxrecueil/status/1971743779385495751)
+
+---
+
+If you really love the humanities, you'd want them to become elite again, not kept as the field that people who couldn't cut it in smarter fields go to after they've flunked out.
+[open](https://x.com/cremieuxrecueil/status/1971744310342439045)
+
+---
+
+If the humanities required you to be this smart, then we would see their reputation flourish.
+
+Harvard entrance exam, 1869: https://graphics8.nytimes.com/packages/pdf/education/harvardexam.pdf…
+[open](https://x.com/cremieuxrecueil/status/1971746084377841969)
+
+---
+
+These are really high figures across the board!
+
+What makes them worse is that plenty of moderates and large numbers of people on the left think random non-Nazis are Nazis, and thus acceptable to punch.
+[open](https://x.com/cremieuxrecueil/status/1971743334139064794)
+
+---
+
+How this can be handled while preserving free speech isn't clear. But socially, at least, it should probably be unacceptable to turn people into targets for politically-motivated violence.
+
+And all violent schizo John Brown types should, of course, be institutionalized.
+[open](https://x.com/cremieuxrecueil/status/1971743337922416814)
+
+---
+
+Found this chart in this article: https://hoisttheblackflag.substack.com/p/not-if-but-when…
+[open](https://x.com/cremieuxrecueil/status/1971743339470114938)
+
+---
+
+The Republicans should accept the ACA funding extension conditional on eliminating MLR requirements.
+
+I think that's a more than fair deal that would enable the HHS to simultaneously deliver incredible cost-savings and quality of care improvements to the American people.
+[open](https://x.com/cremieuxrecueil/status/1971740690284761254)
+
+---
+
+At the time the ACA was passed, plenty of people warned that the medical loss ratio requirements would increase costs and lead to a variety of other bad outcomes.
+
+Then, empirical work showed their concerns were correct, and these things really are awful.  x.com/telmudic/statu…
+[open](https://x.com/cremieuxrecueil/status/1971740787303239712)
+
+---
+
+Mississippi has shot up in 4th grade reading but California made gains too.
+
+It doesn't really look like a red state vs blue thing overall, but some northeastern states dominate the quadrant of blue laggards despite lavish spending.
+[open](https://x.com/AnechoicMedia_/status/1971456758746054969)
+
+---
+
+We are proud to be one of the 13 projects funded by the NIH Autism Data Science Initiative. Our project: "Elucidating the Interplay of Genes and Environment in Autism Using Genomic and Exposure Data from Large Populations" 
+[open](https://x.com/sebatlab/status/1971727218901700693)
+
+---
+
+Men tend to be more variable than women in most traits.
+
+Who tends to be more variable when it comes to BMI?
+[open](https://x.com/cremieuxrecueil/status/1971728155489849659)
+
+---
+
+Sam Altman says that bots are making social media feel ‘fake,' per TC
+[open](https://x.com/cremieuxrecueil/status/1971723371533754670)
+
+---
+
+im gonna make so much money
+[open](https://x.com/cremieuxrecueil/status/1971714138666877103)
+
+---
+
+Really interesting new paper with important conclusions
+
+Differences in how well students transform lessons into knowledge are more important than differences in motivation, and the two qualities are uncorrelated
+
+Successful educational intervention must focus less on motivation!
+[open](https://x.com/cremieuxrecueil/status/1971704030163525635)
+
+---
+
+I think this is relevant to @KelseyTuoc's argument here: https://theargumentmag.com/p/illiteracy-is-a-policy-choice…
+
+Mississippi didn't transition to 'let's motivate the kids!' it transitioned to 'let's use educational methods that are known to be effective'.
+[open](https://x.com/cremieuxrecueil/status/1971705726520513021)
 
 ---
 
@@ -2286,162 +2723,223 @@ This one is based off of Census data and it's impressively null:
 
 # deedydas
 
-I read through every single job posting on OpenAI's career page.
+I've met with dozens of "slop-as-a-service" startups that are making millions of dollars using AI to create an endless stream of blogs for their customers to help them with SEO and GEO (AI SEO). They're all growing insanely fast.
 
-Here's everything they're working on and who they compete with.
-[open](https://x.com/deedydas/status/1968867257599279504)
-
----
-
-Of course, this excludes the obvious: core ChatGPT product and API.
-[open](https://x.com/deedydas/status/1968867884211302498)
+The enshittification of the internet continues.
+[open](https://x.com/deedydas/status/1972541022535372852)
 
 ---
 
-This is was the hardest problem of ICPC 2025
-— OpenAI needed 9 attempts to solve
-— one of 2 DeepMind didn't solve at all
-— the fastest humans took 270 mins of the total 300 to solve
-
-ICPC is the elite programming contest for university students.
-
-Here's Problem G: Lava Moat.
-[open](https://x.com/deedydas/status/1968396714299322475)
+Every single one of the researchers on the Google Veo 3 paper, the world’s best video gen model, is not from the USA.
+[open](https://x.com/deedydas/status/1972131440902205887)
 
 ---
 
-Huge news today on the global AI race: China bans imort of US chips.
+I think this reads as “these are the people who made Veo 3” and I just want to correct that and say these are just the researchers who authored the Veo 3 eval paper, not the actual creators. 
 
-"Beijing’s regulators recently summoned domestic chipmakers such as Huawei and Cambricon, as well as Alibaba and Baidu, to report how their products compare against Nvidia’s China chips..
+This was the primary in-depth Veo 3 paper published by DeepMind, though
+[open](https://x.com/deedydas/status/1972371617646072085)
 
-They concluded that
-[open](https://x.com/deedydas/status/1968359697582629141)
+---
+
+BigTech will spend $345B on cap ex for AI buildouts this year, a 2.5x in just 2yrs.
+
+Not crazy compared to global telecom spend of $1.5T.
+
+OpenAI Stargate’s $500B promise by 2029 would be ~25% of a projected ~$2T spend at a 58% sustained growth. Sam sees the exponential.
+[open](https://x.com/deedydas/status/1972354798281523695)
+
+---
+
+Technically it’s << 25% since $500B is over 4yrs so if we assume a ramp to $200B in 2029 then it’s ~10%. Then again if you slice specifically by AI hw spend, it could be closer to the 25%.
+
+And ofc, drawing a line of 3 data points to  the next 4 comes with risk
+[open](https://x.com/deedydas/status/1972362125814411699)
+
+---
+
+ DeepMind finally dropped the Veo3 paper which shows what we all realize from playing with video-gen models.
+
+Just like LLMs, visual reasoning on is an emergent property of training on tons of video. It can solve tasks not explicitly in training data.
+
+"Veo 3 is the GPT-3
+[open](https://x.com/deedydas/status/1971992541739532609)
+
+---
+
+Source: https://alphaxiv.org/abs/2509.20328
+[open](https://x.com/deedydas/status/1971992554242703458)
+
+---
+
+60% of CS PhDs in the US are not American.
+53% of CS Masters grads in the US are not American.
+BigTech cos have <15% employees on H-1B.
+
+BigTech hiring isn't necessarily biased against Americans; most Americans just don't study advanced CS!
+[open](https://x.com/deedydas/status/1971780213504987458)
+
+---
+
+Engineering overall is 60% and 49% intentional respectively.
+
+Source:
+Masters: https://nces.ed.gov/programs/digest/d23/tables/dt23_323.30.asp…
+Doctorate: https://nces.ed.gov/programs/digest/d23/tables/dt23_324.25.asp…
+H-1B dependent employers (>15%):
+[open](https://x.com/deedydas/status/1971780225664163871)
+
+---
+
+The rumor mill is pretty convinced that OpenAI and Google are both launching "AI native" browsers soon.
+
+Owning the primary app on the computer is critical for distribution, data, and easy to use automations.
+
+This will kill a slew of startups.
+[open](https://x.com/deedydas/status/1971598157789442214)
+
+---
+
+OpenAI's new paper is less about the results and more a peek into what AI labs hope to achieve: automating all human jobs.
+
+GDPVal breaks down tasks that make up everyday jobs of the entire economy and measures AI performance on them.
+
+I bet by end of next year, we will saturate
+[open](https://x.com/deedydas/status/1971429122967810375)
+
+---
+
+Source: https://cdn.openai.com/pdf/d5eb7428-c4e9-4a33-bd86-86dd4bcf12ce/GDPval.pdf…
+[open](https://x.com/deedydas/status/1971429136389599700)
+
+---
+
+PSA: If you join an overvalued startup, you can actually LOSE money instead of getting paid unless you avoid this mistake.
+
+Often, at startups, you are granted options that you "exercise" at the strike price to own them. This 409a price or fair market value (FMV), the price at
+[open](https://x.com/deedydas/status/1971244004181410155)
+
+---
+
+I met the billionaire founder of PayTM and he shared some of the best startup stories I've ever heard:
+
+— When times were tough, he sold 40% of the business for $17K to pay a loan which ended up being valued at $100M+
+— PayTM accidentally launched the biggest payments engine in
+[open](https://x.com/deedydas/status/1970684296504750442)
+
+---
+
+ HUGE Immigration News: new H-1B proposed rule will weight by wage!
+
+Based on your job code and location, your base salary percentile will slot you into one of 4 groups in descending order: IV > III > II > I. Level IV gets 4x tickets in the lottery, III gets 3x and so on.
+[open](https://x.com/deedydas/status/1970524763320983786)
+
+---
+
+Specifically, the category (15-1299.08) and location (Plano, TX) that most IT consultancies use only require $118k to be level III and $144k to be level IV
+
+For a startup (15-1252) in San Jose, CA, that's $226k for L3 and $265k for L4.
+[open](https://x.com/deedydas/status/1970528018469880152)
+
+---
+
+This doesn’t account for the interplay with the $100k fee, if it withstands the court, which would disincentivize the IT shops and push them to using more L-1s. 
+
+Hard to predict the effect of both those rules together except that they both dont help startups and early employees
+[open](https://x.com/deedydas/status/1970539990695481379)
+
+---
+
+I've been writing about the H-1B for over a decade. Here's my balanced take on the $100k fee:
+— who is affected most by it
+— what's bad about it
+— what's good about it
+[open](https://x.com/deedydas/status/1970336044190179824)
+
+---
+
+There’s a tremendous amount of misinformation, feel-good anecdata and noise around this rule from people who do not truly understand the program or seen the underlying data. 
+
+Hopefully this clears some of it up
+[open](https://x.com/deedydas/status/1970337038882029577)
+
+---
+
+A bunch of western energy investors went to China, which makes >80% of the world’s solar at 6x cheaper than the US, and basically realized
+
+“that Western investors live in a bubble in their misconceptions about China” and “catching up to that is futile: it’s not going to happen”
+[open](https://x.com/deedydas/status/1970150517625245940)
 
 ---
 
 Source:
-[open](https://x.com/deedydas/status/1968359710337417523)
+[open](https://x.com/deedydas/status/1970150520473157646)
 
 ---
 
-Big year for us at Menlo.
+Wow that was a strong 4.6 magnitude earthquake in Berkeley felt in San Francisco and across the Bay Area.
 
-— Sana just got acquired by Workday for $1.1B!
-— Neon gets acquired by Databricks for $1B
-— Chime goes IPO at $10B+
-
-Getting an exit for investments is the hardest part of venture capital and we've been hard at work to get there.
-[open](https://x.com/deedydas/status/1967999945564360806)
+Hope everyone is safe.
+[open](https://x.com/deedydas/status/1970066463353639011)
 
 ---
 
-Big personal news!
-
-After a remarkable 18mos at Menlo Ventures, I'm excited to announce that perhaps against better judgement, they have decided to make me a Partner at the firm.
-
-Wild that just 6yrs ago, I'd be up at 2am debugging Google Search.
-
-A little bit about my journey:
-[open](https://x.com/deedydas/status/1967612890367861098)
+The good news on the $100k H-1B ruling is that BigTech / FAANG can easily eat the cost of all new H-1Bs for only +0.2-0.7% increase in R&D cost!
+[open](https://x.com/deedydas/status/1969656001302577655)
 
 ---
 
-Link: https://businessinsider.com/meet-deedy-das-venture-capitalist-ai-startup-whisperer-menlo-partner-2025-9…
+I spoke to immigration lawyer Sophie Alcorn for an hour to answer the most pressing questions about the new $100k H-1B fee.
 
-I’m so thankful for all the people in my life, in particular the founders I’ve been worked with, that have been my support system.
-
-Never in a million years did I think that someone from a place few have even heard of would ever be in this position.
-[open](https://x.com/deedydas/status/1967612903001088217)
+Sophie's (@Sophie_Alcorn) represented startup founders, employees and employers for over a decade in the Bay Area and is one of the experts on the topic.
+[open](https://x.com/deedydas/status/1969593113913315403)
 
 ---
 
-I spent the weekend the most fun, hard and viral coding challenges!
+The Trump regulation is not good for India.
 
-It's the Listen Labs' Berghain challenge, a stochastic knapsack problem. Vibe coding won't get you too far. Startups, THIS is the best way to attract talent.
+It's good for the UK, Canada, Australia, Singapore and the UAE.
+[open](https://x.com/deedydas/status/1969299588566712559)
 
-(ended up ~#250 on the leaderboard)
-[open](https://x.com/deedydas/status/1967437318517838105)
+---
+
+ Here's what Trump's executive order on the $100,000 H-1B ACTUALLY says:
+— It only applies to those entering the US 
+— Effective Sep 21, 2025 and valid for 12 months
+— Decision on renewal of the EO will happen 30 days after the H-1B lottery
+— Says it's a one time payment. No
+[open](https://x.com/deedydas/status/1969190333046276606)
 
 ---
 
 Source:
-https://berghain.challenges.listenlabs.ai
-[open](https://x.com/deedydas/status/1967437331524370901)
+[open](https://x.com/deedydas/status/1969190336334266569)
 
 ---
 
-Google researchers studied computer science to build the universal oracle to answer any question on the planet.
-
-… but the biggest viral moment is people using Gemini as a image editing tool to make them look nice on Instagram.
-[open](https://x.com/deedydas/status/1967266483928748130)
+And yes, this is contradiction to what Lutnick said at the White House press briefing where he said it was every year, for 6 years, including transfers.
+[open](https://x.com/deedydas/status/1969193245163827687)
 
 ---
 
-HUGE immigration news! This month's October US visa bulletin was a positive move for many visa categories, including:
+Devastating immigration news! 
 
-— EB-2 Worldwide: Advanced degrees
-— EB-1 India: Extraordinary ability
-— EB-5 India: Investor visa
-
-These have not moved this significantly in over 3 years!
-[open](https://x.com/deedydas/status/1967054472099844201)
+Trump to add $100k fee for H-1B visas.
+[open](https://x.com/deedydas/status/1969115395261948346)
 
 ---
 
-Source:
-https://travel.state.gov/content/travel/en/legal/visa-law0/visa-bulletin/2026/visa-bulletin-for-october-2025.html…
-[open](https://x.com/deedydas/status/1967054484577939914)
+I know there's been a lot of criticism and commentary on the H-1B under the narrative of taking jobs from Americans. I also know people will read into my view as the tech / immigrant view, but hear me out:
+
+— Yes, I'd say about 25-50% of H-1Bs are abused by IT consultancies that
+[open](https://x.com/deedydas/status/1969138708998995977)
 
 ---
 
-S&P500 Information Technology Price to Earnings Ratio is the highest it's been since Feb 2002!
-[open](https://x.com/deedydas/status/1966910719162806575)
+UPDATE: Lutnick just said the H-1B will now be $100,000 per year per applicant, both first-time and transfers, for a total of 6 years.
 
----
-
-Source:
-[open](https://x.com/deedydas/status/1966911547072278728)
-
----
-
-Source:
-[open](https://x.com/deedydas/status/1966683283447763299)
-
----
-
-Few people know about Apple's acquisition of Palo Alto Semi in 2008, arguably the highest ROI acquisition in tech history.
-
-The $278M price for ~150 engineers laid the foundation for all the Apple Silicon chips you see today that have generated over $500B+ in value to Apple.
-
-1/5
-[open](https://x.com/deedydas/status/1966543378767827428)
-
----
-
-This philosophy evolved into the M1's 20-hour battery life and 3.5x faster performance than Intel at 1/3 the power.
-
-The M line of chips today powers Macs, iPads and Vision Pro.
-
-4/5
-[open](https://x.com/deedydas/status/1966543415719678194)
-
----
-
-Without P.A. Semi, there may never have been iPhone processor independence, iPad dominance, no Apple Silicon Macs.
-
-The small investment (a Series B round today) has generated $500B+ in value. Strategic acquisitions like this can make or break the future of a business.
-
-5/5
-[open](https://x.com/deedydas/status/1966543427560145030)
-
----
-
-PA Semi specialized in power efficient chips with PowerPC chips that delivered 300% more perf per watt than Intel Xeon at the time.
-
-Founded by the late Dan Dobberpuhl (DEC Alpha & StrongARM legend) in 2003, the team had expertise in low-power arch that Intel couldn't match.
-
-2/5
-[open](https://x.com/deedydas/status/1966543391690514790)
+Listen to this from 42:15 and 55:00
+[open](https://x.com/deedydas/status/1969180343694737654)
 
 ---
 
@@ -2455,51 +2953,46 @@ No content found for this user.
 
 # dan_steinhart
 
-Here's another red flag many investors miss because it’s hidden in the financials.
+Do you own enough "sci-fi" stocks?
 
-A company’s management team often pays itself and its employees with massive amounts of stock. This is called stock-based compensation (SBC).
+Here's why sci-fi stocks are surging, and a top drone stock to consider...
 
-Problem is, under standard accounting, this isn’t
-[open](https://x.com/DisruptionHedge/status/1968747890357997993)
+Chief Trader Justin Spittler's latest:
 
----
-
-In my latest Rational Optimist Diary, we look at exciting happenings in three areas I’m most excited about: nuclear SMRs, cloud seeding, and “teleportation.”
-
-Plus, a personal note on why I left Ireland.
-
-Check it out (link in next post):
-[open](https://x.com/DisruptionHedge/status/1968408594497319184)
+$IONQ $RGTI $OKLO $RR $OUST
+[open](https://x.com/Hedge_Your_Risk/status/1970948355833602266)
 
 ---
 
-Apple spent decades and hundreds of billions building the perfect supply chain in China. Now they're trapped.
-
-Atomic Industries founder Aaron Slodov (@aphysicist) explains why the end of "Made in China" is happening now, and how a new generation of founders is rebuilding
-[open](https://x.com/RationalOptSoc/status/1968298898663100892)
+We are building a nuclear world, a world with virtually unlimited energy. It is extremely difficult and extremely worth it.
+[open](https://x.com/AaloAtomics/status/1970989213073248556)
 
 ---
 
-.@RobertHersov on Why We're His Favorite "Unknown" Podcast
-[open](https://x.com/RationalOptSoc/status/1967616678294167843)
+Make sure to read our latest @RationalOptSoc Deep Dive by @dwgalland: Battery Magic
+
+David starts with a quick explainer on the basic technology and then moves on to the interesting stuff, including breakthrough work being done with the potential to change the world.
+
+Link below
+[open](https://x.com/DisruptionHedge/status/1970842528808055034)
 
 ---
 
-The natural, moral reaction to the gluttony, sloth, and opulent pride of tech and the coasts is advocating for socialism.
-
-I say that as a capitalist, and am not advocating for socialism here. Hear me out.
-
-The median American income is $39k/yr.
-
-Yes, it’s good that America has
-[open](https://x.com/ADoricko/status/1967121320455618713)
+The best next-gen nuclear companies are actually private. I’ve visited them. So I’d say don’t buy these stocks. There are better companies out there.
+[open](https://x.com/DisruptionHedge/status/1970463065696039241)
 
 ---
 
-Thanks for the shoutout @RobertHersov. 
+My best friend’s 4 year old daughter back in Ireland was recently diagnosed with a brain tumor
 
-Stephen McBride @DisruptionHedge is the nerdy Irish guy
-[open](https://x.com/dan_steinhart/status/1966489780612477354)
+She has to go to Italy for experimental CAR-T therapy, we’re raising money for her
+
+Challenge: 30 minute ski/bike/row erg for max meters
+
+My score: 30k
+
+I challenge @tyler @cameron
+[open](https://x.com/DisruptionHedge/status/1969347209112985754)
 
 ---
 
@@ -2513,102 +3006,327 @@ No content found for this user.
 
 # CommonSense
 
-We’ve fought to get kids’ online safety bills through the CA legislature, now the final step is here and your voice can make the difference. These bills would curb unsafe AI chatbots and require warning labels on addictive social media. Take action now: https://p2a.co/KchcWph?utm_medium=email&utm_source=advocacy_ca_govnewsom_20250918…
-[open](https://x.com/CommonSense/status/1968799844417384757)
-
----
+No content found for this user.
 
 ---
 
 # iamjohnmackey
 
-This conversation is very dear to my heart. We explore my journey with A Course in Miracles, the transformative power of breathwork, and the profound role forgiveness has played in my life. Listen here:
-[open](https://x.com/iamjohnmackey/status/1968785395988025842)
-
----
+No content found for this user.
 
 ---
 
 # simonw
 
-I'm ready to accept a definition of "agent" that I think is widely-enough agreed upon to be useful:
+Forget MCP, what I want is an industry consortium backed standard for a JSON API protocol for talking to LLM providers
 
-An LLM agent runs tools in a loop to achieve a goal
-
-This is a big piece of personal character development for me! I've been dismissing the term as hopelessly ambiguous for years
-[open](https://x.com/simonw/status/1968755421201711588)
+Everyone building half-baked copies of the OpenAI Chat Completion API worked until it didn't any more!
+[open](https://x.com/simonw/status/1972440239286493186)
 
 ---
 
-The worst offenders for constantly redefining agents with new, vague and inconsistent definitions are OpenAI themselves https://simonwillison.net/2025/Sep/18/agents/#openai-need-to-get-their-story-straight…
-[open](https://x.com/simonw/status/1968759928857776597)
+Just noticed in AI Studio that Nano Banana - aka gemini-2.5-flash-image-preview - has a knowledge cutoff date of June 2025
+
+2.5 Pro and 2.5 Flash (even the fresh bump of Flash released in September) both still have January 2025
+[open](https://x.com/simonw/status/1972415283987194022)
 
 ---
 
-Here's an agent definition from Steve Jobs in a magazine interview in 1984 that I hadn't seen before 
-[open](https://x.com/simonw/status/1968794743925592207)
+... but asking Nano Banana to "Tell me key events that happened in December 2024 worldwide" returns a response claiming that date is in the future, despite the documented June 2025 knowledge cut-off
+[open](https://x.com/simonw/status/1972423589946352030)
 
 ---
 
-I'm not sure I would categorize adding vision support as a "minor update"!
-
-Mistral's reasoning models (Magistral) can handle image inputs now
-[open](https://x.com/simonw/status/1968747104630624623)
+Put together some notes on the new DeepMind paper "Video models are zero-shot learners and reasoners" - it makes a very convincing case that generative video models are to vision problems what LLMs were to NLP problems: single models that can solve a wide array of challenges
+[open](https://x.com/simonw/status/1972095665921839150)
 
 ---
 
-Shipped. For instance, you can see that gpt-oss-120b is 196 GB right from the “Files” tab
-[open](https://x.com/mishig25/status/1968598133543256151)
+Here are my notes on the paper
+[open](https://x.com/simonw/status/1972095667704356997)
 
 ---
 
-Reasoning LLMs from Google DeepMind and OpenAI both just achieved gold medal
-performances in the International Collegiate Programming Contest (ICPC) - they got gold in the International Math Olympiad (IMO) back in July
-[open](https://x.com/simonw/status/1968448861095223317)
+The paper itself has a neat website to accompany the PDF, which has dozens of useful illustrative demos (and a NotebookLM podcast which I found quite useful while walking the dog)
+[open](https://x.com/simonw/status/1972097063145165196)
 
 ---
 
-The PSF has announced the new Board members 
-Congratulations to Abigail Dogbe, Jannis Leidel, Sheena O’Connell, and Simon Willison
-I’m glad to know each of them: such a diverse and talented group.
-Thanks @ThePSF for a fair and democratic process!
-https://pyfound.blogspot.com/2025/09/announcing-2025-psf-board-election.html…
-#Python
-[open](https://x.com/pauloxnet/status/1968034552733110551)
+Classic prompt injection exfiltration attack here, reported against Salesforce Agentforce and now fixed
+[open](https://x.com/simonw/status/1971670652999680049)
 
 ---
 
-A flurry of new releases from OpenAI today under the Codex brand, including a new GPT-5-Codex speciality coding model
-[open](https://x.com/simonw/status/1967667987621794251)
+I'd categorize this one as a lethal trifecta attack, especially as their solution is to cut off one of the legs of the trifecta (the ability to exfiltrate data to external attackers)
+[open](https://x.com/simonw/status/1971671705044263065)
 
 ---
 
-Getting LLMs to write prompts for themselves is one of those things that I didn't really trust a year ago - but the latest generation of models (Claude 4, GPT-5 in particular) have impressed me with their  promoting abilities
-[open](https://x.com/simonw/status/1967337016380817491)
+Wrote more about the Salesforce bug on my blog - one key detail is that Salesforce were using a CSP header to prevent loading images from untrusted domains... but one of their allow-listed domains had expired!
+[open](https://x.com/simonw/status/1971719005569446023)
 
 ---
 
-I always found the idea of inevitable model collapse somewhat absurd, because it treats the people training the models as having no agency themselves
-
-They were expected to just not notice that their models were getting worse, and to do nothing to counter it if they DID notice
-[open](https://x.com/simonw/status/1967309836972130773)
+If you hide the system prompt and tool descriptions for your LLM agent, what you're actually doing is taking the single most detailed set of documentation for your service and deliberately hiding it from your most sophisticated users!
+[open](https://x.com/simonw/status/1971240286295855307)
 
 ---
 
-This event is live right now 
-[open](https://x.com/simonw/status/1966865696404730136)
+Case in point: apparently this is the tool list for Cursor - this is a wildly useful indication of what the Cursor agent can do on my behalf!
+[open](https://x.com/simonw/status/1971323176904008148)
 
 ---
 
-They are doing tram curling right now!
-
-The tram gives a little cart a shove and tries to get it to stop at the right point
-[open](https://x.com/simonw/status/1966866897716343223)
+I would use OpenAI Deep Research (and equivalent products from other labs) a whole lot more if I'd seen the full list of tools that are available to them - and ideally their system prompts as well but that's less valuable to me than the tool definitions
+[open](https://x.com/simonw/status/1971659757410009241)
 
 ---
 
-Tram bowling!
-[open](https://x.com/simonw/status/1966868785794871439)
+Anyone know if there's a solid answer from OpenAI or Google DeepMind yet on whether the models they used in their ICPC programming competition wins had access to tools like the ability to run generated code through a compiler?
+[open](https://x.com/simonw/status/1971606517419008474)
+
+---
+
+OpenAI say "the reasoning system selected which answers to submit with no bespoke test-time harness whatsoever" - but were the answers themselves developed with the assistance of tools?
+[open](https://x.com/simonw/status/1971607653685358819)
+
+---
+
+Confirmation from Ahmed El-Kishky - who worked on this project at OpenAI - that their models solved the programming challenges with a code execution sandbox but no internet access
+[open](https://x.com/simonw/status/1971656946576191746)
+
+---
+
+Here's GitHub's new entry in the CLI coding agent space - a similar shape to Claude Code and Codex CLI
+
+It defaults to using Claude Sonnet 4 but can run against other models too - set the environment variable COPILOT_MODEL=gpt-5 for example
+[open](https://x.com/simonw/status/1971326376956526910)
+
+---
+
+Blogged some notes on GitHub Copilot CLI here
+[open](https://x.com/simonw/status/1971365651081200032)
+
+---
+
+I often encounter people who firmly believe that "LLMs aren't actually AI"... do those people think there exists technology today that DOES count as AI?
+
+Let's try a poll: what's your opinion on the following?
+[open](https://x.com/simonw/status/1971359240251113783)
+
+---
+
+If you answer that AI exists but LLMs aren't it I'd love to know what you DO define as AI out of technology that's available today
+[open](https://x.com/simonw/status/1971360804995031058)
+
+---
+
+Now available in LLM with the llm-gemini 0.26 plugin
+
+You can try that out via uvx like this:
+
+export LLM_GEMINI_KEY='...'
+uvx --isolated --with llm-gemini llm -m gemini-flash-lite-latest 'Generate an SVG of a pelican riding a bicycle'
+[open](https://x.com/simonw/status/1971296002004164908)
+
+---
+
+There are two new models but they each can run in thinking and non-thinking mode, so four new pelicans!
+
+Flash thinking, Flash non-thinking
+Flash Lite thinking, Flash Lite non-thinking
+
+Alt text was generated by the models themselves
+[open](https://x.com/simonw/status/1971296870833193064)
+
+---
+
+More notes on my blog:
+[open](https://x.com/simonw/status/1971296934385291478)
+
+---
+
+Devious new attack class defined by @wunderwuzzi23: "Cross-Agent Privilege Escalation"
+
+If someone has both Claude Code and GitHub Copilot on their machine you can prompt inject one and have it edit the config for the other in order to further escalate your attack's privileges!
+[open](https://x.com/simonw/status/1970961723332100593)
+
+---
+
+Here's his detailed explanation of this new attack
+[open](https://x.com/simonw/status/1970961867565826050)
+
+---
+
+My notes on my blog
+[open](https://x.com/simonw/status/1970961982238097446)
+
+---
+
+It's interesting how "better at code" has become the defining goal of almost every AI lab over the last twelve months
+
+I think Claude Code getting a bunch of people onto $200/month plans proved that code is one of the most economically valuable applications of this technology
+[open](https://x.com/simonw/status/1970147806225854531)
+
+---
+
+Here's a strong argument for the importance of code from Alex at Anthropic
+[open](https://x.com/simonw/status/1970924697509662905)
+
+---
+
+My notes on OpenAI's gpt-5-codex model, now available via their API - I upgraded my llm-openai-plugin to handle it and had GPT-5-Codex itself implement tool support for that plugin
+[open](https://x.com/simonw/status/1970640697020829972)
+
+---
+
+Plus notes on the 5 (!) new things Qwen released today, the most exciting of which is the first in their Qwen3-VL vision-LLM series, a 235B 471 GB Apache 2 licensed monster!
+[open](https://x.com/simonw/status/1970642298469052511)
+
+---
+
+It's delightful how easy it is to deploy working prompt injection attacks via LinkedIn
+[open](https://x.com/simonw/status/1970584780791312414)
+
+---
+
+Looks like it's available via the official OpenAI API now as well - model ID is "gpt-5-codex"
+[open](https://x.com/simonw/status/1970572739305152807)
+
+---
+
+Here's the OpenAI details page for the gpt-5-codex model https://platform.openai.com/docs/models/gpt-5-codex…
+
+It's priced at $1.25/million input and $10/million output - same as regular GPT-5
+[open](https://x.com/simonw/status/1970573459882414304)
+
+---
+
+Plus a new prompting guide for the GPT-5-Codex model
+
+"Because the model is trained specifically for coding, many best practices you once had to prompt into general purpose models are built in, and over prompting can reduce quality."
+
+https://cookbook.openai.com/examples/gpt-5-codex_prompting_guide…
+[open](https://x.com/simonw/status/1970574470923563491)
+
+---
+
+This is really cool - you can try it out by signing into https://chat.qwen.ai (with Google or GitHub) and selecting the audio icon
+
+The model weights are only ~70GB and that's before quantizing them down, so this one is going to be reasonably accessible to run locally
+[open](https://x.com/simonw/status/1970219244941123781)
+
+---
+
+... also from Qwen today, Qwen-Image-Edit-2509, the "monthly iteration of Qwen-Image-Edit"!
+[open](https://x.com/simonw/status/1970219474537353245)
+
+---
+
+... and two other things as well! Qwen released too much stuff today, I combined all four into a single blog post
+[open](https://x.com/simonw/status/1970245040237879755)
+
+---
+
+Some notes on the new CodingBench benchmark which scores LLMs on how well they can accomplish gnarly code compilation challenges, including digging into the Go source code to figure out how its agentic loop works
+[open](https://x.com/simonw/status/1970213171962278259)
+
+---
+
+Love how clear this language is for reassuring people that input to Microsoft 365 Copilot isn't used as training data for other models
+
+Wish the other big AI vendors had language this solid
+[open](https://x.com/simonw/status/1969856559657467907)
+
+---
+
+New on Niche Musems: my write-up
+of a visit to the Musical Museum in Brentford, London... player pianos, self-playing violins, and orchestrions! http://niche-museums.com/115
+[open](https://x.com/simonw/status/1969793965160534321)
+
+---
+
+If you've never seen an orchestrion before you should make your way to your nearest mechanical musical instrument museum as quickly as possible
+[open](https://x.com/simonw/status/1969803633886974051)
+
+---
+
+New release of my llm-openrouter plugin adds support for reasoning options and tool usage, which means you can now execute tools against 179 models made available via OpenRouter
+[open](https://x.com/simonw/status/1969558534808617110)
+
+---
+
+Demo using Grok 4 Fast (free) to query a Datasette instance:
+
+llm install llm-openrouter
+llm keys set openrouter
+# Paste key here
+llm install llm-tools-datasette
+llm -m openrouter/x-ai/grok-4-fast:free -T 'Datasette("https:/''/datasette.io/content")' 'Count available plugins'
+[open](https://x.com/simonw/status/1969558927940731273)
+
+---
+
+I wrote up some brief notes on Grok 4 Fast here:
+[open](https://x.com/simonw/status/1969559120165683364)
+
+---
+
+Leaked memo from Amazon that warns existing H1B holders to avoid travel back into the USA after the September 21st deadline - their lawyers evaluated the new executive order as not just affecting new applications https://businessinsider.com/read-memos-sent-big-tech-trump-h-1b-changes-2025-9…
+[open](https://x.com/simonw/status/1969429646682067362)
+
+---
+
+Here's denial that this affects current visa holders from an official "rapid response" White House account
+[open](https://x.com/simonw/status/1969485691890647249)
+
+---
+
+Confirmation from USCIS that this won't affect existing visa holders
+
+I trust them more then other source since they are the government agency responsible for implementing the new rules
+[open](https://x.com/simonw/status/1969524298198237553)
+
+---
+
+"if the agent ingests anything, then it's permissions should be dropped to the level of the author of that information"
+
+I like that lot, it's a very succinct way of explaining the problem here
+
+Anyone who can author text that gets into your agent can control what that agent does
+[open](https://x.com/simonw/status/1969247680762429784)
+
+---
+
+Just published some notes on httpjail - this is a really interesting new sandboxing project, it lets you run a process (on macOS or Linux or in Docker) with strict restrictions on what outbound HTTP requests it can make, specified as JS or a shell script https://simonwillison.net/2025/Sep/19/httpjail/…
+[open](https://x.com/simonw/status/1969159294303047707)
+
+---
+
+I ran it like this:
+
+brew upgrade rust # Needed a fresh version
+cargo install httpjail
+
+httpjail --js "r.""host === 'chatgpt.""com'" -- codex
+
+Gave me a Codex CLI instance that could talk to its own API (for accessing GPT-5) but couldn't make HTTP requests to anything else
+[open](https://x.com/simonw/status/1969159730628034607)
+
+---
+
+Classic prompt injection attack here against Notion: hidden text (white on white) in a PDF which, when processed by Notion, causes their agent to gather confidential data from other pages and append it into a query string that gets passed to their functions_search() tool
+[open](https://x.com/simonw/status/1969111931152634010)
+
+---
+
+It's a bit weird that the search tool accepts URLs in addition to search terms - in this case I'd suggest locking down the exfiltration mechanism (cutting off one of the legs of that lethal trifecta) and doing an audit to find any other potential exfiltration vectors too
+[open](https://x.com/simonw/status/1969112102569742781)
+
+---
+
+... though as @AbiCodeIntegrit points out, Notion just shipped MCP support which opens up an unlimited array of additional exfiltration vectors for the unsuspecting user to enable
+[open](https://x.com/simonw/status/1969112798341804443)
 
 ---
 
@@ -2616,118 +3334,228 @@ Tram bowling!
 
 # hubermanlab
 
-The new Huberman Lab episode is out: How to Expand Your Consciousness | Dr. Christof Koch
+The new Huberman Lab episode is out: Build Your Ideal Physique | Dr. Bret Contreras (@bretcontreras)
 
-(0:00) Christof Koch
-(2:31) Consciousness; Self, Flow States
-(8:02) NSDR, Yoga Nidra, Liminal States; State of Being, Intelligence vs Consciousness
-(13:14) Sponsors: BetterHelp & Our Place
-[open](https://x.com/hubermanlab/status/1967589230168899718)
-
----
-
-My conversation with @RickRubin on @tetranow 
-We discuss the actionable health steps we should all be doing… 
-Many recently revised based on the latest data. 
-Also: defining your projects, paths and savoring the ride. 
-Pt 2 out tomorrow
-[open](https://x.com/hubermanlab/status/1968829316415844802)
+(0:00) Bret Contreras  
+(2:43) Resistance Training for Beginners, Tools: Training Frequency; Sets, Progressive Overload, “LULUL”  
+(10:45) Sponsors: Rorra & Carbon  
+(13:57)
+[open](https://x.com/hubermanlab/status/1970125938441720174)
 
 ---
 
-Includes a 6 set workout shown to optimize testosterone elevation (done 2x per week); intense but doable. 
-
-How stressors (including deliberate cold) increase testosterone if done at the right frequency, temp. 
-
-How mindset impacts adrenaline impacts testosterone & cortisol.
-[open](https://x.com/hubermanlab/status/1968714917579510108)
+I’ve always believed that every founder’s story is shaped by the ups and downs along the many stages of the journey and @davidsenra understands that. I’ve been a fan of his work for a long time, so when he invited me to be the first guest on his new podcast, it was an easy yes.
+[open](https://x.com/eldsjal/status/1972307990997872968)
 
 ---
 
-New Huberman Lab Essentials episode out now: 30 minutes, key takeaways only. @DuncanFrench
-[open](https://x.com/hubermanlab/status/1968684150644207738)
+The first episode of @davidsenra podcast is out with the one and only @eldsjal of @Spotify and it’s a must watch for anyone interested in building big things, media, music and navigating “it all”. @scicommedia
+[open](https://x.com/hubermanlab/status/1972360075277967719)
 
 ---
 
-I lose punk points for admitting this, but I always PR my lifts while listening to the Grateful Dead. Someone please explain.
-[open](https://x.com/hubermanlab/status/1968436832779252010)
+I’m excited to share episode one of a new podcast created by the Huberman Lab team / @scicommedia. 
+
+For those of you not familiar with @DavidSenra, he is an expert in all things greatness. Mostly in the domain of business, but also among creatives, athletes, and other
+[open](https://x.com/hubermanlab/status/1972345396274868681)
 
 ---
 
-If you don’t get your cortisol levels high enough in the morning, it can result in a
-“flattening” of the natural slope of cortisol decline in the afternoon, which in turn makes your evening and nighttime cortisol too high, has you waking up in the middle of the night, etc.
-[open](https://x.com/hubermanlab/status/1968423475112198522)
+Controversial (for other reasons) neuroscientist Robert Heath found long ago that given the option to self stimulate different brain areas to experience different feelings most people opt to stimulate areas that evoke feelings of mild frustration & anger. Arousal is reinforcing.
+[open](https://x.com/hubermanlab/status/1971978391693021543)
 
 ---
 
-The How To:
-[open](https://x.com/hubermanlab/status/1968424043406655941)
+Recent work (in mice) supports that anger is reinforcing… and mammals will work to fight. Again, explains a lot.
+[open](https://x.com/hubermanlab/status/1972010978247430387)
 
 ---
 
-NEW EPISODE: “And it’s a promise that I can make anyone: if you start anchoring to sunlight and darkness in the right way, everything else will be significantly better. And for many people, it resolves everything. For some people, they still need to tweak certain things. You
-[open](https://x.com/RickRubin/status/1968359475057742150)
+What’s remarkable is they preferred this feeling over sexual arousal, happiness, laughter, drunkenness. Arousal with mild frustration in anger is indeed a drug. It’s just that we make it ourselves. Watch your behavior. Chances are you’re hooked.
+[open](https://x.com/hubermanlab/status/1971978794757202186)
 
 ---
 
-When humans can’t agree, perhaps we need input from other sources to direct the best course of action(?). A recent example of this from USA government explained by Dr Christof Koch on the Huberman Lab podcast.
-[open](https://x.com/hubermanlab/status/1968379439131267576)
+And for you aficionados, the midline thalamus was the hub for this. My friends who are neurosurgeon tell me they observed this from time to time and experiments where they are hunting for epilepsy foci.
+[open](https://x.com/hubermanlab/status/1971979240272023750)
 
 ---
 
-Great little nugget that came from my 6-part series with @hubermanlab . 
-
-I still use these basically daily, especially when traveling and all that.
-[open](https://x.com/DrAndyGalpin/status/1968110263758106715)
+And if you’re going to look up these studies, I’ve covered them before on the podcast, but there’s a collection of them. Not many subjects in each one because it was human self brain stimulation. Those are hard experiments, but if you look across the different experiments it’s a
+[open](https://x.com/hubermanlab/status/1971978999938404814)
 
 ---
 
-Neuroscientist Christof Koch explains how the ego and self centeredness are central to consciousness but that detaching from the self in Flow States or (in safe contexts) psychedelics, can allow temporary ego dissolution and profound experiences… but we inevitably return to ego.
-[open](https://x.com/hubermanlab/status/1967828314053296514)
+Thanks for the birthday wishes! I feel better at 50 than at 21 & I felt great then. I’m not special. Every 24hrs strive for: solid sleep, am sunlight, exercise, (mostly) clean eating, great people, hard work & prayer. I don’t claim wisdom but I put a few recent lessons below.
+[open](https://x.com/hubermanlab/status/1971719589315989849)
 
 ---
 
-Full discussion (and pinned here @X)
-[open](https://x.com/hubermanlab/status/1967828791969058918)
+The other is that dog breeds w/different shaped heads are predictive of their demeanor and intelligence. And while I don’t! believe in Phrenology I now do pay some attention to how the shapes of peoples heads relates to their intellect and steadiness, or lack thereof.
+[open](https://x.com/hubermanlab/status/1971725318873641323)
 
 ---
 
-If you’re interested in consciousness, brain plasticity, and how experiences ranging from flow states to DMT, dreams and one’s intention to learn, can fundamentally change the neural circuits of “self” and “consciousness” my discussion with Christof Koch ought to be of interest.
-[open](https://x.com/hubermanlab/status/1967611616679317797)
+& mind you, I did not describe what I think is the direction of the effect. So don’t leap to assumptions!
+[open](https://x.com/hubermanlab/status/1971733970661658643)
 
 ---
 
-“Insulin resistance” (IR) is not one thing: modern science is starting to identify a lot of subtypes of IR, including people who are muscle insulin resistant, hepatic IR, fat IR, etc. Each subtype requires a different approach to resolve it. Discussed here:
-[open](https://x.com/hubermanlab/status/1966908785295044724)
+The big one for me was realizing that humans and the human brain are amazing, but very prone to having our thinking controlled by where we place our attention and the inputs we get there. A recent guest on the podcast (not out yet) basically explained thinking as a progressive
+[open](https://x.com/hubermanlab/status/1971721469345595414)
 
 ---
 
-"Sleeping on it" is scientifically proven:
-
-People solving hidden-rule puzzles had 59% insight after sleep vs 23% staying awake the same duration.
-
-Sleep reorganizes information, revealing hidden patterns your waking brain missed.
-[open](https://x.com/BrandonLuuMD/status/1966827187597644032)
+The best exercise schedule & program for you needs to be build on the answer to “how many days a week will I train hard & consistently, for the next 3-5 years.” (Then update accordingly). For me the answer was/is 3 days a week; 34 years down. And counting. But you do you.
+[open](https://x.com/hubermanlab/status/1971599812895150374)
 
 ---
 
-I hosted a guest on the podcast who is expert on all things hearing. One thing for all of you interested in hyperbaric chamber is that it can cause tinnitus. It starts suddenly & it is difficult to predict who will respond that way. If anyone knows, please say below.
-[open](https://x.com/hubermanlab/status/1966897305753407815)
+Here is the 3 day a week program I followed for the last 34 years, with some brief lapses and shifts of course along the way. Includes some cardio too. It’s zero cost to access and no sign up. Lots of friends male and female have used it to great success.
+[open](https://x.com/hubermanlab/status/1971657202000932940)
 
 ---
 
-Vitamin D3 supplementation: largely accepted nowadays. Creatine: starting to break through. Next: Magnesium (Threonate or Bisglycinate). Why? Well for starters, Mg can protect against hearing loss, solid data on reducing migraines & it can improve sleep. 30-60min before bed.
-[open](https://x.com/hubermanlab/status/1966892948014174633)
+OTC Supplements for pain. For MDs & scientists out there that are supplement averse, be aware this is @StanfordPain 
+= Times are changing! In fact, they have changed. The most knowledgeable MDs are embracing the full kit as useful: behaviors, supplements, Rx Meds & mindset.
+[open](https://x.com/hubermanlab/status/1971606792624132547)
 
 ---
 
-And per always, and I’ve stated this and pretty much every podcast and every venue I possibly can, you gotta get your behaviors, right. Supplements are not a replacement. It’s obvious but people overlook it nonetheless.
-[open](https://x.com/hubermanlab/status/1966896781104742819)
+Please take note: @NIH @NIHDirector_Jay @NIH_NCCIH @HHSGov
+[open](https://x.com/hubermanlab/status/1971607280719442289)
 
 ---
 
-I have an episode of the podcast with a MD, PhD/chair of major med school dept who explains why Mg is beneficial for many people. The old guard that dismisses supplements is dissolving away. And of course Rx meds still matter but the landscape is not the same anymore.
-[open](https://x.com/hubermanlab/status/1966893582817902683)
+Proper neck training improves posture, makes you stronger on most all other movements, provides injury protection & for men w/wide shoulders, ensures you don’t look like you have the wrong (small) head on your frame (!) Women can strengthen neck w/o size increase BTW. See below.
+[open](https://x.com/hubermanlab/status/1971263174189129863)
+
+---
+
+The guys shaped like kettlebells with naturally large necks (many rugby players wrestlers etc) usually can skip direct neck work. But not always.
+[open](https://x.com/hubermanlab/status/1971263774847123486)
+
+---
+
+Good example of safe effective neck training and what to avoid.
+[open](https://x.com/hubermanlab/status/1971263524489105434)
+
+---
+
+New Huberman Lab Essentials episode out now: 30 minutes, key takeaways only.
+[open](https://x.com/hubermanlab/status/1971225837245694192)
+
+---
+
+It’s hard for people to get their heads around this one, but A and B are the same color and brightness. You can crop them out and compare if you like. Visual perception is amazing, but it is also very context dependent. (Credit: Akiyoshi)
+[open](https://x.com/hubermanlab/status/1970899319927746924)
+
+---
+
+Don’t believe it. They for yourself using screenshots and crops of the top post checkerboard.
+[open](https://x.com/hubermanlab/status/1970992639660130697)
+
+---
+
+Don’t miss these two Masters mash it up about the access points that convert hard work (necessary!) into next level results. After all these years @tferriss podcast is still top notch. #legends
+[open](https://x.com/hubermanlab/status/1970947312240427458)
+
+---
+
+Wu Tsai Neuro affiliate Jessica Ross and colleagues used TMS pulses to induce movements in people's hands—a common testing ground for new ideas in the field. By carefully timing those pulses to music, the team found they could double the impact of TMS.
+
+https://neuroscience.stanford.edu/news/groove-brain-music-supercharges-brain-stimulation…
+[open](https://x.com/StanfordBrain/status/1970905642589438106)
+
+---
+
+If you have a weak body part you want to bring up in strength and/or size you need to change your programming for a short while. This explains how. It’s not simply a matter of doing more work. You have to offset that elsewhere.
+[open](https://x.com/hubermanlab/status/1970912652584157589)
+
+---
+
+https://ritsumei.ac.jp/~akitaoka/index-e.html…
+[open](https://x.com/hubermanlab/status/1970899459656872086)
+
+---
+
+https://ritsumei.ac.jp/~akitaoka/index-e.html…
+[open](https://x.com/hubermanlab/status/1970898952053735718)
+
+---
+
+It’s true. Women are often (not always) ready to go again before men are. @bretcontreras on recovery from resistance training in women vs men.
+Full length discussion on all things resistance training; formulating the ideal work out & body part split, etc. https://hubermanlab.com/episode/build-ideal-physique-bret-contreras…
+[open](https://x.com/hubermanlab/status/1970872854041571520)
+
+---
+
+When @davidsenra launches a new podcast (with video)… https://open.spotify.com/show/7jVjHrQJCbgruHkhrFi94A?si=JHbJlLFXRBiKkRA9xHSz2w…
+[open](https://x.com/hubermanlab/status/1970870482946973706)
+
+---
+
+This is awesome. I couldn’t be happier about working with @davidsenra on his new podcast. Guests and David’s interviewing are next level. Buckle up!
+[open](https://x.com/hubermanlab/status/1970617661265715339)
+
+---
+
+I’m surprised. 
+According to ⁦@bretcontreras⁩ the tempo of lifting and lowering a weight does NOT impact hypertrophy much— BUT you do need to control the concentric (lifting) & eccentric (lowering) phase of each rep & not use momentum to avoid injury & get results.
+[open](https://x.com/hubermanlab/status/1970538304790790311)
+
+---
+
+Have never received so many calls and text messages about autism as today… phone is blowing up, 
+
+And questions about Tylenol and sunlight and vitamin K… and inflammation. 
+
+And many of those Qs from colleagues…
+
+Wild times in public health comms!
+[open](https://x.com/hubermanlab/status/1970304468895088916)
+
+---
+
+I tried a ton of different water filters to eventually arrive @rorrawater as the one to use and endorse. Best taste, purification data are spectacular, great aesthetic, ease of use and cost-benefit ratio. It’s a pleasure to use, recommend and promote.
+[open](https://x.com/hubermanlab/status/1970250662429802523)
+
+---
+
+If you have a body part that’s lagging due to injury, genetics, or that you simply want to improve, this episode explains how to organize your workouts for maximizing that progress while holding onto the other progress you’ve made. All the details made practical.
+[open](https://x.com/hubermanlab/status/1970182360156250229)
+
+---
+
+Compartmentalization gets a bad rap. But to be productive, to be present to people, to get anything worthwhile done… we have  to learn to compartmentalize. You might have ADHD (perhaps get clinically assessed) but for most people, it’s simply lack of compartmentalization.
+[open](https://x.com/hubermanlab/status/1970181459949535453)
+
+---
+
+Monday is Leg Day. @bretcontreras took me through a description of frequency, sets, reps, and how to tailor a program to your unique needs. This accompanies the Huberman lab podcast out now (all platforms). And workout is on Huberman Lab Clips channel on YT. Don’t skip leg day.
+[open](https://x.com/hubermanlab/status/1970154117273448611)
+
+---
+
+Leg Day. To accompany today’s Huberman Lab podcast (How to Build Your Ideal Physique), here is a video of @bretcontreras taking me through a complete leg workout. Frequency, sets, reps, form, and everything else included for you to adapt to your needs.
+[open](https://x.com/hubermanlab/status/1970153480582226076)
+
+---
+
+- @cole_hocker winning the 5000m with a wildly fast last lap kick = yet another spectacular win. They boxed him in on the 1500m race & here he responded by going  all around the outside & smoked everyone From 12th (?) to 1st position … just awesome. #oregon #Indiana #colehocker
+[open](https://x.com/hubermanlab/status/1969998112086515891)
+
+---
+
+"That’s not something science can answer definitively. It’s a philosophical, even theological question. But, it turns out, the way you answer it shapes your life."
+
+Love this excerpt from @hubermanlab podcast with Jamil Zaki
+[open](https://x.com/WillPiot/status/1969228815021805986)
+
+---
+
+In part 2 of our @tetranow podcast conversation @RickRubin and I discuss MDMA, psilocybin, hippy flips, where the FDA (non)approvals are at, plus science & spirituality, God & faith & how science & health communication are rapidly evolving … & music & shilajit & more.
+[open](https://x.com/hubermanlab/status/1969128189873074601)
 
 ---
 
@@ -2735,425 +3563,296 @@ I have an episode of the podcast with a MD, PhD/chair of major med school dept w
 
 # fentasyl
 
-Censoring everyone who politely disagreed with you wasn't a great way to convince us you value free speech.
-
-Mass censoring us random normies was particularly dumb, making it no longer abstract.
-
-I got banned for posting facts about crime committed by BLM rioters on my street.
-[open](https://x.com/fentasyl/status/1968919135703675094)
+The vast majority of Muslims in the USA today were not in the USA before 9/11/2001.
+[open](https://x.com/fentasyl/status/1971813696528584769)
 
 ---
 
-AI coding agents offer the best glimpse into what the future of agents will look like in many other fields of knowledge work.
+I’m supportive of ditching the ABA, but per FL’s constitution it is up to the FL Supreme Court to make that change.  
 
-AI coding has accelerated faster than any other AI space because the builders of AI understand their own workflows deeply, and they’re incentivized to
-[open](https://x.com/levie/status/1968883364469129316)
-
----
-
-What will be the "iphone moment" for AI? Artificial Superintelligence, at the fingertips of every 80 IQ consumer. Picture that.
-[open](https://x.com/fentasyl/status/1968887799391699266)
+Texas’ Supreme Court just did something along these lines.
+[open](https://x.com/RonDeSantis/status/1972512283445407826)
 
 ---
 
-It should be illegal for local broadcasters to carry national programming.
-
-Or, TV broadcasting licenses should simply be sunset. It's clearly obsolete technology, wasting our precious natural resources (spectrum).
-
-Ancient tech with ancient regs. Time to end it.
-[open](https://x.com/fentasyl/status/1968864709194428630)
+Tale as old as time.
+[open](https://x.com/fentasyl/status/1972488904260604398)
 
 ---
 
-Imagine how many fewer FCC regulators we'd need to employ in this 100-year-old practice.
-[open](https://x.com/fentasyl/status/1968865446729330800)
+Children of Dune (1976)
+[open](https://x.com/fentasyl/status/1972502344920432980)
 
 ---
 
-It's a dead medium. The TV manufacturers don't even bother including "next gen TV" ASTC 3.0 (circa 2019) tuners because it's a waste of money and nobody cares.
-[open](https://x.com/fentasyl/status/1968870390794444896)
+Britain should be offering the surrender of their nuclear weapons as part of ongoing trade negotiations.
+[open](https://x.com/fentasyl/status/1972484009725980967)
 
 ---
 
-me: "refactor this react.js frontend"
+there's actually a whole farm of these "middle aged woman AI" accounts
 
-chatgpt-codex:
-[open](https://x.com/fentasyl/status/1968826340469088473)
-
----
-
-codex-cli is still the best implementation they offer.
-This cloud mode is decent but has some serious issues.
-The codex-ide extension is completely broken and unusable for me.
-[open](https://x.com/fentasyl/status/1968827110962712651)
+@nikitabier plz
+[open](https://x.com/fentasyl/status/1971964615451201915)
 
 ---
 
-The average IQ of a Google Search User was far far higher in 2008 than it is today, among other intractable problems.
-
-It's extremely difficult to derive meaningful information from such long-term internet service usage data.
-[open](https://x.com/fentasyl/status/1968818543622852691)
+This isn't the case for other globally significant demographic groups. Not of Christians, Jews, blacks, whites, or hispanics.
+[open](https://x.com/fentasyl/status/1971816719489413236)
 
 ---
 
-Jimmy Kimmel doesn't have a 1st amendment right to broadcast his speech in parts of EM spectrum restricted from 99.9999% of Americans.
-
-There is a legitimate argument about regulatory abuse. It's not a free speech question.
-
-Take it to 2.4ghz like the rest of us, Jim.
-[open](https://x.com/fentasyl/status/1968526300391288838)
+24 years ago you could have gone to Little Italy and asked "why is there a giant burning hole in the ground filled with the corpses of Americans a few blocks away from Little Italy?"
+[open](https://x.com/fentasyl/status/1971790725705806162)
 
 ---
 
-I'd at least respect the principles of someone who made this argument from the side of:
-- Zero govt regulation on these frequencies at all.
-Which would, arguably, allow for more-free speech than the current law.
-[open](https://x.com/fentasyl/status/1968535413842190644)
+Just saw this beautiful mural painted by a local artist in downtown DC.
+[open](https://x.com/fentasyl/status/1971773795183837619)
 
 ---
 
-gpt-5-codex is pretty impressive. We're now at the point where commerical models can easily be tasked to complete 30-90 minute boluses of productive, independent, technical work with good quality results.
-
-After spending 15-20 hours so far this week using it... yeah, it's good.
-[open](https://x.com/fentasyl/status/1968501958660014101)
+You can now sort your tweet's Likes by "Top" instead of "Recent" 
+[open](https://x.com/fentasyl/status/1971603043780272481)
 
 ---
 
-Broadcast spectrum is a limited natural resource. Transmitting a small selection of advertisements to a captive audience of the indigent & infirm is hardly its highest use (or free speech, for that matter).
-
-TV broadcasters have a responsibility to maintain our resources, that's
-[open](https://x.com/fentasyl/status/1968474153108873530)
+The illegal aliens merely had pending criminal charges.
+[open](https://x.com/fentasyl/status/1971578306156986633)
 
 ---
 
-The amazing thing about all these NGO-created "political violence" datasets is how you usually just have to look at 1 single random entry to find out it's totally fake data.
-[open](https://x.com/fentasyl/status/1968320135997079601)
+We are living through a tech-enabled economic boom.
+
+Those who are looking at the archaic economic data don't realize it yet. Those who are operating in the tech industry are scrambling to keep up.
+
+This tale of two worlds is only going to get wider in the coming years.
+[open](https://x.com/APompliano/status/1971567753661460482)
 
 ---
 
-You might think to yourself, after the first spot check, "surely the reported incidents can't all be like this" but then you keep digging and digging and they all really are.
-[open](https://x.com/fentasyl/status/1968321196145177064)
+Comey's jury nullification strategy here is obvious; he HAD TO go outside the law to stop Tyrant Trump.
+
+Given the evidence, it's also obviously his best bet.
+
+If he were a sympathetic figure, it'd be a coin flip. But what partisan juror cares about old white man FBI director?
+[open](https://x.com/fentasyl/status/1971388239060889876)
 
 ---
 
-The same heuristic is generalizable beyond this category of data.
+Documents we reviewed show a range of U.S. employers have sought to hire foreign H-1B workers to fill their DEI positions.
 
-You should default to suspecting any NGO-produced dataset, particularly for nationwide data, even if it confirms your priors.
-
-If the dataset isn't published by the US Govt, it's probably not great quality.
-[open](https://x.com/fentasyl/status/1968327405207982201)
+For example, Yale New Haven Health filed Labor Condition Applications (LCA) for H-1B visas for the role of “Diversity and Inclusion Specialist” in 2021:
+[open](https://x.com/SenEricSchmitt/status/1971258160297148607)
 
 ---
 
-Reducing staff with AI, robots and offshoring, dramatically increases profitability 
-
-When Amazon starts shedding 10,000 factory workers and drivers a month their stock will skyrocket — and we’re gonna have some serious social issues if we’re not careful 
-
-If you work at Amazon
-[open](https://x.com/Jason/status/1968147909372723434)
+MUSK’S GROK AI CLEARED FOR USE ACROSS US GOVERNMENT AGENCIES
+[open](https://x.com/DeItaone/status/1971203186628444376)
 
 ---
 
-Wait, is Congress really going to end this obscene 40-year-old practice?
-
-From the 2023 archives:
-[open](https://x.com/fentasyl/status/1968091876118110467)
+America’s homeowner population has stopped growing, per Redfin:
+[open](https://x.com/unusual_whales/status/1971182142576087340)
 
 ---
 
-In order to cook the books, they had to exclude the BLM riots because there were nearly 600 in just the 1st 90 days after Floyd. Include Aryan nation prison stabbings, white nationalists killing their ex over custody disputes & throw black nationalist killings in with the right
-[open](https://x.com/IamSean90/status/1967845071903953344)
+The Biden-Harris administration seemingly actively chose to lose voters on the illegal immigration issue.
+
+They could've upped the deportations and reduced the incentives to cross over at any time and they just didn't.
+[open](https://x.com/cremieuxrecueil/status/1971065037533123011)
 
 ---
 
-The more pressing chart is this one, however.
-
-This one deals with justifications for political violence.
-
-Nearly a third of 'very liberal' respondents think political violence is at least sometimes justifiable.
-[open](https://x.com/cremieuxrecueil/status/1968049915231342826)
+Hey @nikitabier can we get a toggle to hide posts by people who blocked us? I've never once seen a worthwhile tweet by someone who blocked me. It's always negative-value garbage.
+[open](https://x.com/fentasyl/status/1971049261459701894)
 
 ---
 
-My friend made a chart showing that the racial demographics of New York City neighborhoods predict the proportion of the dogs that are dangerous.
+Some populations reduce freedom and liberty when they immigrate to America.
 
-The exceptional areas are two low-income housing blocks where pit bull types are banned. Remove those and the R^2 is a whopping 0.71!
-[open](https://x.com/cremieuxrecueil/status/1968018763267313928)
+This means it's not just a request to respect the rights of others to immigrate.
 
----
-
-I always wonder what OpenAI would look & sound like had Kamala won the election.
-[open](https://x.com/fentasyl/status/1967963076717842560)
+It's actually a request to transfer your rights to others.
+[open](https://x.com/jeremykauffman/status/1970917571462574081)
 
 ---
 
-Imagine how much worse it would have gotten...
+grok4 and gpt-5 are the only models I use these days. Everything else is obviously worse.
 
-
-[open](https://x.com/fentasyl/status/1967981150732947511)
-
----
-
-Llama, Phi, Orca, Baichuan, Meditron
-
-
-[open](https://x.com/fentasyl/status/1968014311407947920)
+But you really should give codex a try, even if you don't code. It's a mind opening experience.
+[open](https://x.com/fentasyl/status/1970708988699516979)
 
 ---
 
-Every Canagraph is made even more insane when contextualized with their immigration policies.
-
-Heck, before 2016, Canadian temporary foreign worker policy looks like it even had some connection to the real economy.
-[open](https://x.com/fentasyl/status/1967993979645071771)
+Huge missed branding opportunity by Trump in 2020 for not derisively calling this cellular terrorist organization "al tifa" from the start.
+[open](https://x.com/fentasyl/status/1970667907471548900)
 
 ---
 
-Non-Permanent Residents are the more relevant when contrasting with economic/industrial growth/recession... But I would be remiss to not then contrast that number of NPRs with the Permanent Residents.
-[open](https://x.com/fentasyl/status/1968006374295769593)
+For one, it flows off the tongue better. The two groups are also direct organizational cognates, both decentralized cellular terrorist groups with similar funding structures.
+
+It's made even more apt in 2025, now that BLM doesn't matter and Palestinianism is their stated cause.
+[open](https://x.com/fentasyl/status/1970686108213051722)
 
 ---
 
-The marriage premium on wages–the extra amount the married make compared to the non-married–has consistently been positive and large for men.
-
-And in the most recent cohorts, it's gone from being negative for women to being positive.
-
-Married women now *outearn* the unmarried!
-[open](https://x.com/cremieuxrecueil/status/1967955384343388354)
+Amazing tweet
+[open](https://x.com/fentasyl/status/1970629793055154588)
 
 ---
 
-This is extremely concerning. The distinction is not between "free speech" and "hate speech," but between "free speech" and "organizing illicit activities, engaging in political violence, depriving others of their civil rights, and committing tax or nonprofit fraud."
-[open](https://x.com/realchrisrufo/status/1967950157095530518)
+"the most recent data is too damn old!"
+So true, carena316, my fellow datum lover. More true than even you know. Eternally true.
+[open](https://x.com/fentasyl/status/1970633184766500912)
 
 ---
 
-It finally happened.
+President Trump can unilaterally nullify any UN treaties any time he so chooses. Now's the perfect time.
 
-Globally, more children are too fat than are too skinny.
-
-This is not all bad. In fact, I'd say for mortality, it's dominantly good:
-
-It means we're replacing "world hunger" with "world overeating"!
-[open](https://x.com/cremieuxrecueil/status/1967670508394254419)
+Time, at the very least, to end our participation in the UN Protocol Relating to the Status of Refugees.
+[open](https://x.com/fentasyl/status/1970614037856817253)
 
 ---
 
-Far-left groups like ADL spend countless millions every year (tax free) to produce fake data like this.
-
-The right is completely absent, total surrender to these false narratives.
-
-Why was I -- 1 random hobbyist -- the most prolific producer of illegal immigration data in 2024??
-[open](https://x.com/fentasyl/status/1967845620762456174)
+Watching old high school friends on social media celebrating the cold-blooded murder of a nonviolent, noncriminal American citizen has forever burned into my mind the wretched repugnant moral failure of the entire liberal project. There's no sunlight left between the lines.
+[open](https://x.com/fentasyl/status/1970328292478853179)
 
 ---
 
-I am extremely grateful for the publication of this result.
+Of course I've been quite aware of the totalitarian, anti-american focus of their leadership for years.
 
-Why? Because it means this method has gone mainstream and replications can flourish by using it.
-
-So, here's the first replication, all using the U.K. Biobank. This is for Black-White differences in IQ:
-[open](https://x.com/cremieuxrecueil/status/1967732760862396668)
+But it was still staggering to see so many regular normies, all of whom went to the same good schools as I did, embracing murder as their virtue.
+[open](https://x.com/fentasyl/status/1970358372311450098)
 
 ---
 
-Damned fools in the Congress and the cabinet.
-[open](https://x.com/fentasyl/status/1967784574722904293)
+"algo trading" was such a big niche meme for such a long time... wonder when "AI trading" will inevitable capture the public's imagination 
+[open](https://x.com/fentasyl/status/1970322644387119219)
 
 ---
 
-In the cabinet's defense, Rubio hasn't been foolish. It's righteous and good to remove belligerent foreigners.
-[open](https://x.com/fentasyl/status/1967824178985439713)
+It really feels sometimes like some witches in an enemy territory put some kind of “diversity” spell on the west. What in the world would make you want to specifically target people from places that do not have a history of integration with the west for immigration to the west?
+[open](https://x.com/xwanyex/status/1970108861152731145)
 
 ---
 
-Running an increasingly violent racial censorship racket doesn't engender much sympathy, it turns out.
-[open](https://x.com/fentasyl/status/1967760862464315734)
+It's a bipartisan indictment of the US Congress how the most basic, most obvious incentive structure wasn't there to begin with, and has never been added in the 30 years since.
+
+"let's just do a global lottery" come on.
+[open](https://x.com/fentasyl/status/1969983613992329529)
 
 ---
 
-GPT-5-Codex is here: a version of GPT-5 better at agentic coding.
-
-It is faster, smarter, and has new capabilities. Let us know what you think!
-
-The team has been absolutely cooking, very fun to watch.
-[open](https://x.com/sama/status/1967650108285259822)
+And don't even get me started on the "diversity visa lottery"
+[open](https://x.com/fentasyl/status/1969984688786677765)
 
 ---
 
-Guess it's Attiah's last day as Race Profiteer at the Washington Post.
-Can't believe that was a real, paying job.
-
-In memory of her storied career, here's the one time I QTed her (she deleted the original tweet, it appears).
-[open](https://x.com/fentasyl/status/1967601946950590843)
+For no reason at all.
+[open](https://x.com/fentasyl/status/1969985606714372123)
 
 ---
 
-I actively cataloged some of the worst behavior during 2020's cultural revolution.  
+Hard to measure the difference between "can't do productive labor" and "is right now doing tons of productive labor"
 
-Here's a round-up of 25 egregious firings, investigations, and excesses from 2020, so you can remember just how bad things got.
-[open](https://x.com/jeremykauffman/status/1967557497755148744)
-
----
-
-It's not just that this was bad execution on its own merits. Doing stupid things like this takes resources from far-more important immigration enforcement priorities, and sours the public on immigration enforcement in general.
-
-Self defeating. With zero upside.
-[open](https://x.com/fentasyl/status/1967423808064901326)
+But it is huge.
+[open](https://x.com/fentasyl/status/1969939952193445976)
 
 ---
 
-"Those guys we shackled up like cartel members for our Instagram video? Ya, we want them back."
+Most Liberals think the BLM Riots resulted in less than $10 million dollars in property damage.
 
-Mind numbing.
-[open](https://x.com/fentasyl/status/1967428583372288045)
-
----
-
-Muslim terrorists have, of course, killed vastly more Americans than right wing & left wing domestic extremists combined.
-
-(Disregarding the fake data in the QT)
-[open](https://x.com/fentasyl/status/1967406375765782574)
+Reality: The BLM Riots resulted in over $1 billion dollars in property damage.
+[open](https://x.com/TheRabbitHole84/status/1969824502680105004)
 
 ---
 
-You're on trial, and the jury can't make up their minds. The decision is a coin flip: 50/50, you either get it or you don't.
-
-Your odds of a given verdict depend on the "peers" making up your jury.
-
-If you're Black and they're Black, your odds are good; if you're White, pray.
-[open](https://x.com/cremieuxrecueil/status/1967337196391985485)
+This obvious policy solution was not originated 2 months ago by the antiwoke libtard lawyer community. Lots of prior art.
+[open](https://x.com/fentasyl/status/1969775071523913852)
 
 ---
 
-In 21 States, the police are allowed to forcibly seize property from Potentially Dangerous Persons without an underlying crime.
+There is nothing inherently wrong with a Y axis set to the range of the data. 
+Average US electricity has never cost $0.00/kWh. Why chart an irrelevant, incoherent number and lose visual resolution?
 
-The law in every Blue State recognizes that otherwise-legal words & behaviors are indicative of potentially dangerous tendencies.
-[open](https://x.com/fentasyl/status/1967274541148979354)
-
----
-
-Learn to vibe code.
-[open](https://x.com/fentasyl/status/1967252595283833112)
+The biggest problem with this chart is that it's not inflation adjusted.
+[open](https://x.com/fentasyl/status/1969625060873822442)
 
 ---
 
-Back in 2019, it was a bannable offense to offer this advice to journos on twitter.
-[open](https://x.com/fentasyl/status/1967254505013264644)
+Displaying a Y axis from zero is optimal for plenty of datasets. Most of my charts on here do so.
+
+And midwits have been trained on that common case, so they deploy the critique without understanding the data.
+
+But fitting to range is often the least-biased way to visualize data.
+[open](https://x.com/fentasyl/status/1969641341505454117)
 
 ---
 
-looking for 𝕏 power users to train our models.
-
-if 𝕏 is already your life, you might as well get paid to make it better.
-
-DM me + RT this if interested 
-[open](https://x.com/DreamChaser206/status/1967016292185243810)
+For the record, I have been shilling this same basic policy since at least the Ramaswamy H1-Blowup of December 2024
+[open](https://x.com/fentasyl/status/1969532244239737030)
 
 ---
 
-GPT-5 dominates the long-horizon Agents race
-
-in a new long-horizon execution benchmark, GPT-5 outperforms Claude 4, Gemini 2.5, and Grok-4 by 2x
-
-the benchmark counts how many steps a model completes with 80+% accuracy on a simple task: retrieve dictionary values and sum them
-[open](https://x.com/slow_developer/status/1967186229775995305)
+Just need to dispel the ongoing misattribution. This idea, obviously, was not originated by a libtard lawyer 8 months after my above tweet.
+[open](https://x.com/fentasyl/status/1969588786976997391)
 
 ---
 
-When you vote for a candidate you are voting not just for a person but for an entire organization. A vast stricture that is employed below, beneath, above and around them.
-
-So when you vote to elect any Democrat you are putting to work an entire governing system: “criminal
-[open](https://x.com/StephenM/status/1967225095119638972)
+The X algo has been pretty bad this week. Under no circumstances do I want to read a 10 page AI generated "Trust The Plan Fellow Patriots" cope tweet.
+[open](https://x.com/fentasyl/status/1969551177051254894)
 
 ---
 
-It's really because of all the seemingly normie Americans -- the nurses, the schoolteachers -- acting so happy about killing Americans.
-
-If it was just the politicians, the mentally ill, the legacy media & the foreigners doing the celebrating as usual, it wouldn't be so shocking.
-[open](https://x.com/fentasyl/status/1967145497808011523)
+The salary floor, too?
+[open](https://x.com/fentasyl/status/1969242859552260391)
 
 ---
 
-This old saw falls flat when half the constituency is on SSRIs & in therapy, and while the most important Democrat policy is transgenderism.
-[open](https://x.com/fentasyl/status/1967100334888915016)
+It's the Democrats' responsibility to brutally & ruthlessly purge all wokeness from academia. Until they do that, they'll never be trusted.
+
+Clean up your mess.
+[open](https://x.com/fentasyl/status/1969218516151603695)
 
 ---
 
-"just a random nut" as if it's rare and the electronic health records wouldn't verify that for a good quarter of democrat voters
-[open](https://x.com/fentasyl/status/1967119266031038725)
+The USA grants about 1/2 as many "genius" O1 visas to foreign workers with extraordinary ability as we give family visas to the RELATIVES of generic foreign workers.
+[open](https://x.com/fentasyl/status/1969213102869672242)
 
 ---
 
-The mentally ill are the perfect voting constituency. They're highly labile wards of the state and when they commit heinous crimes you can minimize & dismiss it as their fundamental incapacity.
-[open](https://x.com/fentasyl/status/1967127659487654271)
+.
+[open](https://x.com/cremieuxrecueil/status/1969201084330623363)
 
 ---
 
-You now have to revisit your priors. I had always assumed, for example, the vicious foreigner-importation strategy by the Biden administration was wholly top-down by cynical politicos.
-
-You have to wonder, how many elementary schoolteachers strongly support ethnic cleansing?
-[open](https://x.com/fentasyl/status/1967086400714797392)
+read it here first
+[open](https://x.com/fentasyl/status/1969186380707185142)
 
 ---
 
-You can't unsee the bloodthirsty viciousness Democrats cultivated.
-They always before had a fig leaf:
-COVID, to save grandma
-BLM, to stop abuse of power
-Jan 6, to protect democracy
-
-But now they've dropped the act. Voters, Media, Reps, & Leaders all elated for cold-blooded murder
-[open](https://x.com/fentasyl/status/1967053912172839073)
+before it becomes US Government policy, that is
+[open](https://x.com/fentasyl/status/1969196120338227377)
 
 ---
 
-Wonder if any corporations are running their own internal versions of this yet.
-
-Not because they necessarily care politically, but just to save some layoff time & severance costs.
-[open](https://x.com/fentasyl/status/1967042303912034320)
+Crazy to have 7+% unemployment and have 7+% foreigners residing there on "temporary" work/study visas.
+[open](https://x.com/fentasyl/status/1969174779639820618)
 
 ---
 
-Is your boss or your coworker saying that people like you deserve to be assassinated? If so, this hostile work environment violates your civil rights under Title VII of the Civil Rights Act of 1964.
+This is what they gave up. And for what? Dead-end politics like DEI mandates, transgenderism, George Floyd, & cloth masks.
 
-Report these criminal acts to the U.S. Equal Employment Opportunity Commission.
-[open](https://x.com/fentasyl/status/1966782821088772506)
-
----
-
-Imagine having a Fake Email Job in late-2025 and throwing it away to... celebrate assassination.
-
-Did they not know we now have free internet robots that can do their entire job?
-
-Sharing PowerPoint Slides With Stakeholders, believe it or not, isn't a $150k/yr job anymore.
-[open](https://x.com/fentasyl/status/1966763276856946690)
+They destroyed the national trust in government funded science for that, for less than nothing.
+[open](https://x.com/fentasyl/status/1969138309717688801)
 
 ---
 
-If these dimwitted GOP Congressmembers try to push through some PATRIOT Act censorship bullshit, so help me God.
-[open](https://x.com/fentasyl/status/1966737241817932014)
+Abortions are the end result of a shockingly large share pregnancies.
 
----
-
-Why did he end up at this local non-selective college where his scores would be top ~1%, and left after 1 semester? Did he get rejected at all his choice schools?
-
-His matriculating year, 2021, was the very first judged using the post-BLM openly anti-white male Equity rubric...
-[open](https://x.com/fentasyl/status/1966656796212203797)
-
----
-
-This kneejerk response for censorship is anti-American & a poor use of resources. The DOJ should launch from Utah a Jan 6th-scale investigation into these organized crime networks, starting with retention demands for all user data within 6-degrees of Tyler Robinson & building out
-[open](https://x.com/fentasyl/status/1966593433981628599)
-
----
-
-Obvious unforced error.
-[open](https://x.com/fentasyl/status/1966532981373210887)
-
----
-
-They'll kill you for beliefs you don't even have.
-[open](https://x.com/fentasyl/status/1966513892269387799)
+I've gone ahead and graphed their number between Roe v. Wade and 2020:
+[open](https://x.com/cremieuxrecueil/status/1969083411873595671)
 
 ---
 
@@ -3161,30 +3860,95 @@ They'll kill you for beliefs you don't even have.
 
 # arjunkhemani
 
-Freedom Engineered in Code 
-[open](https://x.com/arjunkhemani/status/1968009451580875039)
+The case for a small allocation to ZEC
+[open](https://x.com/ssaintleger/status/1972328571457708074)
 
 ---
 
-No content found
-[open](https://x.com/elonmusk/status/1967784323672953114)
+“Knowledge creation is the most
+egalitarian enterprise in existence.”
+
+— Exercpt from Lords of the Cosmos, coming Oct 7
+[open](https://x.com/arjunkhemani/status/1971621596604649849)
 
 ---
 
-Up 90% since he said this btw
-[open](https://x.com/arjunkhemani/status/1967574533722030557)
+Creativity is the child of freedom and the father of progress.
+[open](https://x.com/arjunkhemani/status/1969652763136053420)
 
 ---
 
-Use Zcash.
-[open](https://x.com/arjunkhemani/status/1967552337083613587)
+.@sama: If I had to pick one favorite book, I would pick The Beginning of Infinity by @DavidDeutschOxf.
+
+Even if you don’t read the whole thing, the first 40–50 pages are, I think, the most wonderfully optimistic take on why—even in a world with AI—we’re never going to run out of
+[open](https://x.com/arjunkhemani/status/1971219577745903938)
 
 ---
 
-Free speech is about expression. Privacy is about the conditions of expression.
+this is a good post on it
+[open](https://x.com/0xMert_/status/1970918492741452036)
 
-Without privacy, speech isn’t free.
-[open](https://x.com/arjunkhemani/status/1966777626825290162)
+---
+
+“Privacy isn’t important, until it suddenly is.” — @naval
+[open](https://x.com/arjunkhemani/status/1970905399609131344)
+
+---
+
+Few things have improved my quality of life as much as owning two battery packs.
+
+I always leave home with one fully charged battery pack while the other stays at home charging.
+
+I never charge my phone with a wire. Battery never even comes close to dying. 
+
+Best hack ever.
+[open](https://x.com/arjunkhemani/status/1970795769612701974)
+
+---
+
+I’ve spent weeks working on this.
+
+Today, it’s live: my full guide to Many-Worlds.
+
+If you’ve ever wanted a clear, rigorous, but beginner-friendly guide to quantum mechanics → this is it.
+[open](https://x.com/maxdesalle/status/1970496402967961775)
+
+---
+
+“Alien cartographers of the universe may one day observe the Milky Way and notice that entire solar systems have been altered by forces very unlike gravity.
+
+They may see that planets have been moved around as if by God’s invisible hand, that energy from stars is being siphoned
+[open](https://x.com/arjunkhemani/status/1969651573593682366)
+
+---
+
+Excerpt from the final chapter of my documentary:
+[open](https://x.com/arjunkhemani/status/1969651807765864614)
+
+---
+
+Chapter 7: The Anthropocene
+[open](https://x.com/arjunkhemani/status/1969434896377548800)
+
+---
+
+Chapter 7: The Anthropocene
+[open](https://x.com/arjunkhemani/status/1969434663916564808)
+
+---
+
+YouTube:
+[open](https://x.com/arjunkhemani/status/1969434667062309365)
+
+---
+
+Transcript:
+[open](https://x.com/arjunkhemani/status/1969434669197242376)
+
+---
+
+What Pericles, the Medici, and Musk Have in Common
+[open](https://x.com/arjunkhemani/status/1969315751300374960)
 
 ---
 
@@ -3192,104 +3956,105 @@ Without privacy, speech isn’t free.
 
 # William_Blake
 
-Honestly, hell yeah
-[open](https://x.com/ADoricko/status/1968790489437483398)
+Seasteading 3.0
+[open](https://x.com/William_Blake/status/1972359862236615029)
 
 ---
 
-This is something like a canonical statement of the guiding ethos. In the abstract it's hard to argue with any part of it. It's essentially all true. 
-
-It still matters, of course, that implementation is done prudently. 
-
-The networks and mainstream news outlets have already
-[open](https://x.com/wesyang/status/1968698891081068782)
+Exited to speak!
+[open](https://x.com/William_Blake/status/1972302062466875450)
 
 ---
 
-@ToryAnarchist on the blurred lines between politics and morality
-
-@bdomenech on the why Charlie Kirk was the Right man
-
-@William_Blake on the counter-elite tech literary canon
-
-@BridgetPhetasy on the default illiberalism of liberalism
-[open](https://x.com/Freddygray31/status/1968723087878156783)
+After 10 months of work PLANET, our 1st sci-fi film, is officially live on our website!
+[open](https://x.com/jasonjoyride/status/1971974463068819889)
 
 ---
 
-you guys ready?
-[open](https://x.com/smileycapital/status/1968365820658205140)
+New Ian McEwan is a brilliant puzzle of a book, a meditation on the limits of history & biography. Literary scholar in 2120 is obsessed in finding a poem recited at a dinner in October 2014, but the only copy of the poem has been lost to history & buried under nuclear fallout and
+[open](https://x.com/William_Blake/status/1971927684201828567)
 
 ---
 
-Act fact, we're ready to fund you!
-
-555-1517
-[open](https://x.com/DStrachman/status/1968167784673841431)
+Youth is the source of innovation. One way to quantify this, somewhat problematically, is by looking at patent rates. These show a peak around age 35, with an optimal age range say around 30 to 45. For software related industries, the optimal age is probably a bit younger.
+[open](https://x.com/KirkegaardEmil/status/1971384572211495138)
 
 ---
 
-"Wow. Just wow. What an absolutely amazing time in the woods with you, the 1517 community, and Maui (!). Thank you and the whole team for putting together Unplugged and for hosting my son and me. So thankful to be part of this community.
+80% of what we call 'scientific understanding' is just pattern recognition dressed up in mathematical formalism.   
 
-What really struck me was just how pure
-[open](https://x.com/DStrachman/status/1967952645819384078)
-
----
-
-Candid shot of @JohnathanBi, free to roam philosophy’s frontiers outside of the academy.
-
-Check out the first episode of this new @cosmos_inst series and stay tuned for episodes like @William_Blake’s (which is superb).
-[open](https://x.com/mbrendan1/status/1967921251034534007)
+We know that things work long before we know why they work. And sometimes the 'why' we invent is completely wrong but useful.
+[open](https://x.com/TheHarryGandhi/status/1970885636539191714)
 
 ---
 
-Alex and I had a great discussion of this lost virtue on his pod - most academics including Alasdair MacIntyre say this virtue Aristotle extolled is cringe. But maybe the ancients were wiser
-[open](https://x.com/William_Blake/status/1967806367672250594)
+Silicon Valley’s first exit goes hard.
+[open](https://x.com/William_Blake/status/1971349639661310076)
 
 ---
 
-Pitch advice of the day: "Rizz at the top and focus on the benies"
-[open](https://x.com/William_Blake/status/1967687817619968095)
+Lots of big firms reaching out right now “What’s the secret to the Thiel Fellowship?! What are you looking for?!”
+
+The checklist is this:
+
+ There is no checklist
+[open](https://x.com/DStrachman/status/1971306300786249895)
 
 ---
 
-1517 Unplugged was a hit! Founders, community members, teens, LPs -- can't wait to host again next year.
-[open](https://x.com/DStrachman/status/1967685788986175836)
+"The aim of public education is not to spread enlightenment at all, it is simply to reduce as many individuals as possible to the same safe level, to breed and train a standardized citizenry, to put down dissent and originality." - H. L. Mencken
+[open](https://x.com/ancapquotes/status/1971057176576766180)
 
 ---
 
-1517 Unplugged was fun! Thanks @DStrachman and @William_Blake for the wonderful weekend!
-[open](https://x.com/sangam_chapagai/status/1967680474974916687)
+Boo! Just drop out.
+[open](https://x.com/William_Blake/status/1970932920211964202)
 
 ---
 
-Bizarrely, I remember the national debt being a big issue in the election of 1980, right around the time debt/GDP hit an historic low.
-[open](https://x.com/bryan_caplan/status/1967609804266053664)
+Heading out to Singapore next week for my first time! And we are going to do a 1517 ice cream social there. DM for the invite.
+
+Would love to meet nondegreed makers, crazy scientists, and people who love to fund those types of people!
+[open](https://x.com/DStrachman/status/1970857455174496268)
 
 ---
 
-A philosophy of action & practical wisdom has largely been ignored by academic philosophers. Free to roam Jonathan has the balls to explore the open territory in earnest. Honored to be a part of this series
-[open](https://x.com/William_Blake/status/1967613801676857559)
+Hello I am Big Cloud 
+
+And I would like to coax more water from the sky for our farms and rivers under regulatory supervision and local consent
+[open](https://x.com/ADoricko/status/1970463579506958683)
 
 ---
 
-After silently observing for far too long, I've overcome my fears of getting involved. Witnessing the assassination of @charliekirk11 who embodied Integrity, Faith, and Patience, I can no longer sit on the sidelines. We all must stand up and Love others through true
-[open](https://x.com/Peterhgibson/status/1967278675193417905)
+Uber driver driving me to Yale: “you a professor? You look like an educator.”
+[open](https://x.com/William_Blake/status/1970153041950286332)
 
 ---
 
-"The most urgent necessity is, not that the State should teach, but that it should allow education. All monopolies are detestable, but the worst of all is the monopoly of education." - Frédéric Bastiat
-[open](https://x.com/ancapquotes/status/1966846509900550227)
+Not many know he was an applicant to the Thiel Fellowship way back in 2013 or 14. We passed on him because we didn't think a media company had the scalability of tech startup. Our mistake! But Charlie kept coming to our events for a long time.
+[open](https://x.com/William_Blake/status/1970140563698745727)
 
 ---
 
-Our courteous and efficient staff are standing by!
-[open](https://x.com/DStrachman/status/1966522528614273088)
+I'm at MIT and Harvard tomorrow and Weds. Who's around?
+[open](https://x.com/William_Blake/status/1970138357780123800)
 
 ---
 
-1517 Unplugged kicks off today! Our first all ages camp for our founders, grantees, LPs, and community members!
-[open](https://x.com/DStrachman/status/1966578480436461823)
+What they won’t teach you in high school and college
+[open](https://x.com/William_Blake/status/1969827644767351061)
+
+---
+
+Shoulda been dedicated to @ADoricko
+[open](https://x.com/William_Blake/status/1969484382319570964)
+
+---
+
+Super intelligence will solve every mystery in science but one: how to teach humans skills that make them employable. 
+
+Apparently the hardest problem in the universe that not even AI can solve is how to teach humans how to be useful and employable
+[open](https://x.com/William_Blake/status/1969138697200087138)
 
 ---
 
@@ -3297,326 +4062,638 @@ Our courteous and efficient staff are standing by!
 
 # JeffBezos
 
-No content found for this user.
+What a view. From our new free flying camera — deployed on yesterday’s New Shepard mission. (The “bubble” is the seam between two 180 degree lenses.)
+[open](https://x.com/JeffBezos/status/1969191669359661535)
+
+---
 
 ---
 
 # garrytan
 
-I’m pleased to announce that San Francisco now has a shrine to Saint Carlo Acutis and a prayer of intercession for programming problems!
+Here is another incredible GPT-5 Pro example that is well above biomedical PhD level and how it advances science: 
 
-Carlo was an Italian teenager who built several influential websites sharing the miracles of the faith in the early 2000s. He passed away from
-[open](https://x.com/growing_daniel/status/1968822572285645001)
-
----
-
-Amazing, no notes
-[open](https://x.com/garrytan/status/1968859597508124908)
+I was reviewing some of our old data and noticed an email from one of my PhD students sent more than eight years ago, outlining a highly complex immune cell
+[open](https://x.com/DeryaTR_/status/1972115494787338484)
 
 ---
 
-I gotta say being a universal acceptor for autistic infodumping is a superpower in San Francisco
-[open](https://x.com/garrytan/status/1968858579013640545)
+PLEASE JOIN US IN PROTEST AGAINST DIVERSION FOR HANAKO ABE'S CASE - JUSTICE FOR HANAKO ABE on Friday, 10/3 AT 8.30AM AT 575 POLK ST, SF Court Access Center (1 block from city hall) - please share widely
+[open](https://x.com/incitafusio/status/1972378785959047536)
 
 ---
 
-Lovable for Marketing Ops is here. 
-
-Surprising fact: small meaningful changes in the first time form experience can result in much better first time completion. 
-
-Now an AI agent can help you build the perfect first handshake for your next customer.
-[open](https://x.com/garrytan/status/1968808060349984971)
+Gradually, then suddenly
+[open](https://x.com/garrytan/status/1972462529164321169)
 
 ---
 
-Introducing "Infinite funny podcast"
+The researchers at the big labs usually see about six months ahead. Sholto Douglas, also at Anthropic, said this week 'We're probably only a few months from crossing the parity line' with human experts.
 
-On Argil . ai
+Anthropic said this during their Series C raise back in 2023;
 
-all of this is AI-generated, even the great @garrytan !
-
-the only tech that make @lexfridman less robotic.
-
-army of PhDs to crack this! we are so back!
-[open](https://x.com/BrivaelLp/status/1968794023281221754)
+ 'These
+[open](https://x.com/AndrewCurran_/status/1972314032989413517)
 
 ---
 
-If you want to have laser eyes into your multi step AI workflows, this is it
-[open](https://x.com/garrytan/status/1968696061980991740)
+I want there to be a way to read original texts but with a frontier LLM agent standing by to answer questions and explain things at any moment. Ideally way less clunky than how it is done now: screenshots pasted into ChatGPT.
+[open](https://x.com/garrytan/status/1972457806096945486)
 
 ---
 
-there are generational runs and then there are whatever @tbpn are on
-[open](https://x.com/JacobyBrandon/status/1968502240433283573)
+Agents that can do large scale migration tasks are *almost* here. This could take an engineer days by hand.
+
+We just posted an update to our blog on what this looks like including the output of a long running python to typescript translation task.
+
+Find it in the blog post!
+[open](https://x.com/realmcore_/status/1972431447303897455)
 
 ---
 
-Imagine a fully loaded 737 fully crashing every 48h, killing everyone on board. 
-
-That is how many people die in car crashes. If self driving cars were only 10% safer than humans they would still save many, many lives.
-[open](https://x.com/bscholl/status/1968461428009861421)
+I sent this note to our entire team at @Opendoor earlier today.
+[open](https://x.com/CanadaKaz/status/1971622109614166342)
 
 ---
 
-Substack co-founder and CEO Chris Best (@cjgbest) is building the publishing platform for independent creators — one where creators succeed by serving their communities.
-
-Millions of people now use the app every week, paying for the work they value and fueling a new economic
-[open](https://x.com/ycombinator/status/1968391288350457944)
+The idea that we will automate work by building artificial versions of ourselves to do exactly the things we were previously doing, rather than redesigning our old workflows to make the most out of existing automation technology, has a distinct “mechanical horse” flavor
+[open](https://x.com/fchollet/status/1972302124932542891)
 
 ---
 
-YC is the YC for biopharma
-[open](https://x.com/garrytan/status/1968484199494775190)
+The progressive San Francisco judge that accepted the consideration to release a 91-time felon who killed two people is Judge Michael Begert.
+[open](https://x.com/kane/status/1971981900429611253)
 
 ---
 
-Ryan Petersen is the truth
-[open](https://x.com/garrytan/status/1968418948732567612)
+Raise people up don't chop them down
+[open](https://x.com/garrytan/status/1972394978354794794)
 
 ---
 
-Wow.
-
-Looks like Google AI will support AI to AI payment using crypto out of the box.
-
-Google is adding the x402 standard pioneered by Coinbase, the EF, and Metamask to it's agent to agent payment strategy.
-
-That means Google AIs can pay AIs using crypto.
-
-This is actually huge.
-[open](https://x.com/RyanSAdams/status/1968320893953933781)
+PLEASE JOIN US IN PROTEST AGAINST DIVERSION FOR HANAKO ABE'S CASE - JUSTICE FOR HANAKO ABE on Friday, 10/3 AT 8.30AM AT 575 POLK ST, SF Court Access Center (1 block from city hall) - please share widely
+[open](https://x.com/incitafusio/status/1972379077895131509)
 
 ---
 
-Big news: Hubble Network has raised $70M in Series B funding, $100M total to date!
+I’ve been through a cofounder breakup, sometimes it’s the only way forward
 
-With 7 satellites now in orbit, we’re making it possible for billions of Bluetooth devices to connect directly to space, no cell towers, no gateways. 
-
-Details:
-[open](https://x.com/hubble_network/status/1968317362354192651)
+I’ve known Peggy for years, we’re friends and now in the YC batch. she did the right thing by leaving a dynamic that wasn’t working and starting fresh. she’s taking the high road and focusing on building
+[open](https://x.com/conor_ai/status/1972078591782625331)
 
 ---
 
-Prediction:
-
-U.S. dollar stablecoins with yield will drain bank accounts in every country with an inferior currency - which is pretty much all countries.
-
-These countries will react with crypto capital controls - they'll pass laws or regulate.
-
-We're already seeing it.
-
-In the UK
-[open](https://x.com/RyanSAdams/status/1968317057109287046)
+The NPC theory:  “most people” don’t really have deep inner lives where they yearn for meaning and purpose, they’re just incentive-following automatons who will do whatever satisfies their hardwired drives. Just sheep following the trends.
+[open](https://x.com/eshear/status/1972350262573711545)
 
 ---
 
-For a year of demo days at YC in a row we've been TBPN exclusive and we haven't regretted it one bit
-[open](https://x.com/garrytan/status/1968342948283826616)
+I used to pray for times like this
+[open](https://x.com/garrytan/status/1972385551681757387)
 
 ---
 
-AB1064 is sitting on @CAgovernor’s desk. Child safety is important. But is this really the answer?
-
-This bill calls for a state registration for all AI products
-
-May be a chilling effect for consumer AI companies since it even requires products not focused on children to comply
-[open](https://x.com/garrytan/status/1968338463176221048)
+I want a factory now, ngl
+[open](https://x.com/garrytan/status/1972082350319358456)
 
 ---
 
-From what I can tell this is a poorly thought out piece of legislation that needs significant rework and should not be signed
-
-The California legislature is so broken and totally captured by grandstanding politicians desperate for the next rung of power
-[open](https://x.com/garrytan/status/1968339225625170413)
+Someone asked me recently why I keep working when I don’t have to and this photo is basically the answer. It’s hard to beat working with people you respect and have fun with. (h/t @garrytan for taking it)
+[open](https://x.com/harjtaggar/status/1972046322749657566)
 
 ---
 
-are you really burnt out or is your nervous system just asking for the basics: consistent sleep, sunlight, and something meaningful to pour your energy into?
-[open](https://x.com/bluewmist/status/1968305489168785729)
+no surprise Nik is a hack
+
+why you people believe this shit is beyond me
+[open](https://x.com/sporadicalia/status/1971968572114284682)
 
 ---
 
-Enforce quality of life crimes in San Francisco
-
-How a city does anything is how it does everything
-
-And too often, this city does nothing
-[open](https://x.com/garrytan/status/1968290514660471040)
+Mrs. Abe tells me that she will be attending the Oct. 3 hearing via Zoom from her home in Japan. ⁦@BrookeJenkinsSF⁩ and @SFDAOffice⁩ oppose the diversion request and will be advocating for the case to remain in criminal court and proceed to trial.
+[open](https://x.com/SusanDReynolds/status/1971970909742551265)
 
 ---
 
-One of the funniest Waymo culture war moments in SF is when "Founding @DSA_SF Leader" @jasonpjason pretended a Waymo almost ran him down while biking, but he forgot that Waymo is covered in cameras and the official DMV report said that he was just faking it after reviewing the
-[open](https://x.com/kane/status/1968032540633276814)
+NYC learning all the SF lessons in slow motion on a time delay somehow
+[open](https://x.com/garrytan/status/1971970351157662034)
 
 ---
 
-Waymo is so safe that if every car was driven like a Waymo, about 9% of America's life expectancy gap would disappear.
+LLMs are approaching industry expert level performance on human knowledge work tasks
 
-9 percent
-
-Americans die in car accidents *that often*.
-[open](https://x.com/cremieuxrecueil/status/1968109309809823861)
+Which means they are already better than the avg person for a great many things
+[open](https://x.com/garrytan/status/1971968830303097282)
 
 ---
 
-Explain your ideology in one chart (okay actually three)
-[open](https://x.com/calebwatney/status/1968096241914613773)
+youtube.com
+[open](https://x.com/garrytan/status/1971968903531450595)
 
 ---
 
-They finally did it.
-
-Eli Lilly has made a once-daily weight loss pill.
-
-Despite the convenience of being a pill you don't have to inject, it works 80-90% as well as injected Ozempic for helping patients lose weight.
-
-And compared to Ozempic, there are fewer side effects!
-[open](https://x.com/cremieuxrecueil/status/1968096846548812105)
+people will inspect element dms, block you so can't reply, pull out all the dirty tricks on here to score points once you get to a certain size kek
+[open](https://x.com/tszzl/status/1971833682009948264)
 
 ---
 
-The murder of Iryna Zarutska on a North Carolina train should force America's urbanists to confront an unpleasant truth: Without public order and safety, Americans will NOT embrace transit-centric cities.
-[open](https://x.com/Noahpinion/status/1968156434245488669)
+I was a YC hater until late 2021. I got accepted and almost rejected it (“the deal is so bad” yadda yadda)
+
+I overthought it for so long. Ultimately I asked two people I trust.
+
+They both told me to do it. I’m so thankful I listened.
+[open](https://x.com/theo/status/1971820833615364592)
 
 ---
 
-I think overall this is a bummer for the moderate hopes for SF
-
-If you are a moderate common sense San Franciscan who lives in District 4 we need you to raise your hand and run for this supervisor seat
-[open](https://x.com/garrytan/status/1968164476601159913)
+Can’t even reply @jason lmao
+[open](https://x.com/garrytan/status/1971924754358845884)
 
 ---
 
-Armistice
+Basically, blue-state progressives have convinced themselves that Black people are innately ineducable, and then talk a lot of bullshit about why it's actually antiracist to think that.
 
-@pk_iv and I both want agents to be able to do the will of the people
-[open](https://x.com/garrytan/status/1968156829390946769)
-
----
-
-Paul Graham’s recipe for doing great work:
-[open](https://x.com/ycombinator/status/1968044356046295449)
+While centrists in red states are just making sure Black people get a good education.
+[open](https://x.com/Noahpinion/status/1971624174725877970)
 
 ---
 
-At some point San Francisco need to reckon with the fact that progressive governance experiment has just been an exercise of transferring taxes to grifters (why does San Francisco have a 'Human Rights Commission'?)
+This is a really fascinating report, and it highlights three things Mississippi did to fix their schools:
 
-She will walk away because @sfgov and @sfcityattorney refuse to
-[open](https://x.com/kane/status/1968013818354864373)
-
----
-
-x402 + @Google just unlocked a new level for AI agents.
-
-Agents can actually pay each other now, with x402 powering the stablecoin rail inside Google’s new Agentic Payments Protocol (AP2). Really cool.
-[open](https://x.com/brian_armstrong/status/1967980850567582096)
+1. Require the teaching of phonics.
+2. Require teachers be *trained* in teaching phonics.
+3. Require third-graders who cannot read at a proper level to repeat the grade.
+[open](https://x.com/fawfulfan/status/1971560546291130863)
 
 ---
 
-On why you should unequivocally do @ycombinator if you're a start-up (even if you already have a product, users, or revenue)
-
-The math is simple: winning = fun
-
-YC helps you start winning. It helps you find customers, increases your surface area for luck++
-
-Blog in 
-[open](https://x.com/juecd__/status/1967604450681647556)
+No diversion. It’s very simple.
+[open](https://x.com/garrytan/status/1971823926637744229)
 
 ---
 
-This week, a new book for young adults just dropped called The Vale, written by Abigail Hing Wen (bestselling author of Loveboat Taipei) — a luminous, deeply human story about ambition, identity, and AI. I sat down with Abigail to hear her story.
-[open](https://x.com/garrytan/status/1967985216498307428)
+Peggy is a great founder who is working on a new and very smart consumer app 
+
+It doesn’t compete with Ego, and while the cofounder breakup was not ideal (none are) all the allegations are baseless and all you haters need to step off and leave her alone right now.
+[open](https://x.com/garrytan/status/1971760951771930803)
 
 ---
 
-Order The Vale here and come meet the author at an upcoming book tour location near you
-[open](https://x.com/garrytan/status/1967987512498065637)
+Long story short a bunch of hater anons should reconsider their clout chasing ways
+[open](https://x.com/garrytan/status/1971822044829700185)
 
 ---
 
-One thing that I learned after managing consumer products: never let a single crazy person upset you.
+All the haters are just clout chasers
 
-This lesson is probably useful in life generally.
-[open](https://x.com/nikitabier/status/1967852534686773644)
+Go meditate on your L you psychos
 
----
-
-For nearly two decades, Box co-founder and CEO Aaron Levie (@levie) has been at the frontlines of how technology reshapes work—guiding the company through the rise of mobile, the cloud, and now the age of AI.
-
-In his fireside with YC's @dflieb at AI Startup School, Aaron reflects
-[open](https://x.com/ycombinator/status/1967952300397437440)
+Vish and Peggy are both going to do great from here and meanwhile the haters who thrive on only darkness should go find Jesus
+[open](https://x.com/garrytan/status/1971821553840275879)
 
 ---
 
-Believe it or not that first guy in the rainbow suit once spotted me on the street, followed me to my dinner in North Beach and proceeded to heckle me through the windows at the restaurant I was eating at for several hours straight
-[open](https://x.com/garrytan/status/1967956088424386713)
+Weak ass tech TPOT haters don’t understand I came up through SF Politics Twitter
+
+Your hate is weak af
+[open](https://x.com/garrytan/status/1971812910826725430)
 
 ---
 
-First interview with Daniel Francis, Founder & CEO of Abel Police
-
-"We do this not because it is easy, but because we thought it would be easy."
-
-Ride alongs, police chases, crime data is massively misreported.
-
-0:19 What Daniel says about the allegations
-0:25 Thoughts on
-[open](https://x.com/ti_morse/status/1967691388830748999)
+I mean it’s true
+[open](https://x.com/garrytan/status/1971761832668135831)
 
 ---
 
-“Go direct” has gone from fringe to accepted to the default comms approach
+guy went from "my startup is going well and i hate yc" posting to just "i hate yc" posting
 
-If you’re still relying on pitching as the only way to get your message out at this point I don’t know what to tell you
-[open](https://x.com/lulumeservey/status/1967702865822310640)
-
----
-
-From 17 pivots → 2,000 user interviews during @ycombinator  → Raising our $15M Series A for @HyperboundAI 
-
-I'm still processing it.
-
-11 straight days of back-to-back investor calls.
-
-And yet...there was a moment we almost didn't raise at all because we were profitable and
-[open](https://x.com/sguduguntla11/status/1967627904596185123)
+great call on the rejection here yc
+[open](https://x.com/garrytan/status/1971759066914738652)
 
 ---
 
-We are offering an alternative to "do drugs until you die" in San Francisco. @salvationarmysf offers treatment on demand, post treatment, drug-free housing, and the city's first clean and sober shelter. This is "The Way Out."
-[open](https://x.com/TheWayOutSF/status/1967634672529408249)
+It’s funny, unsurprisingly all the assholes dogpiling on Peggy I had blocked here. 
+
+You should be ashamed of yourselves. Some of you are even real name trolling.
+
+It’s been noted.
+[open](https://x.com/garrytan/status/1971758671836365130)
 
 ---
 
-Underrated aspect of the age of AI
+5 Tool founders can do these things well: (1) code, (2) design/taste, (3) sell/fundraise, (4) recruit, & (5) plan/organize.
 
-The pure “IQ smarts” genetic lottery is subverted by different traits: agency, ability to harness language to solve problems, empathy for others, product sense, prompting ability
-[open](https://x.com/garrytan/status/1967606155561341204)
+5 tool baseball players do these things well: (1) hit for average, (2) hit for power, (3) run, (4) field/catch, and (5) throw.
 
----
-
-everything you put into the world whether a launch video or your product itself should double as cultural commentary. 
-
-it doesn’t have to scream it, but it should either mirror society back or poke fun at it. that’s why comedians resonate so well with people… they’re often
-[open](https://x.com/signulll/status/1967401986485068005)
+Both are very rare.
+[open](https://x.com/bhalligan/status/1971684376778793037)
 
 ---
 
-SF needs to be a place that no longer enables people to do drugs until they die
-[open](https://x.com/garrytan/status/1967314986440839263)
+You can do well as a startup investor just by investing in people smarter than you so long as that’s a sufficiently small set of people.
+[open](https://x.com/harjtaggar/status/1971733233139368420)
 
 ---
 
-5 years later and this continues to be one of the most important and relevant blog posts published by a prominent tech CEO
-[open](https://x.com/anothercohen/status/1967050370221535322)
+Paul Gross (@paulawgross) is the co-founder and CEO of Remora, where he and his team capture carbon emissions from semi-trucks and locomotives — turning exhaust into beverage-grade CO₂ sold to breweries and greenhouses.
+
+On the Social Radars, Paul shares how he started the
+[open](https://x.com/ycombinator/status/1971633099269390406)
 
 ---
 
-This additional funding is more than the entire Taiwan high speed rail cost, on top of California HSR already being almost 400% over budget.
+Assume solvability, engineer possibility. @brettdg on the mentality of the best technical founders.
+[open](https://x.com/Initialized/status/1971692890377408696)
 
-At this point CAHSR phase 1 will cost similar to an inflation-adjusted Apollo program, to build less than 500 miles of rail.
-[open](https://x.com/kane/status/1967035892398444805)
+---
+
+In that moment, the guy understood this was the real lesson of YC and he became enlightened.
+[open](https://x.com/garrytan/status/1971616149575180358)
+
+---
+
+"...there is not a fixed amount of wealth in the world. You can make more wealth."
+
+Paul Graham on the Pie Fallacy:
+[open](https://x.com/ycombinator/status/1971609258887377019)
+
+---
+
+Apple featured @EmpiricalHLTH  as an app with a "gorgeous new design".
+
+To be honest, there are a MILLION things I'd change about our product. As @garrytan  says, "every product is bad the day it is born" -- so this was a nice milestone, but here's to 1,000 more days of sanding
+[open](https://x.com/bballinger/status/1971610876319854799)
+
+---
+
+We have mounting evidence that the move away from phonics education (especially in Blue states) has been an abject policy failure & states like Mississippi have shown us that there’s a way to fix these errors. Not doing so out of ideological purity is choosing to fail our kids
+[open](https://x.com/Blake_Allen13/status/1971337500326281465)
+
+---
+
+old lego ads are such incredible lessons in effective ad copy. say what the product does.
+[open](https://x.com/WillManidis/status/1971588432750407756)
+
+---
+
+Meta spends billions of dollars but can't get web image upload to work on its premiere property, Instagram
+
+(Also fairly certain there are people on this very web upload team making 7 to 8 figures TC)
+[open](https://x.com/garrytan/status/1971591567992656090)
+
+---
+
+This is a basic quality issue. If you don't want people to upload via web, don't offer the button. 
+
+How you do anything is how you do everything. 
+
+The garden has weeds.
+[open](https://x.com/garrytan/status/1971592597778141672)
+
+---
+
+RT @hudsonliao: Only in San Francisco can activism and AI cross paths in serendipity. You meet people who will change the world in their ow…
+[open](https://x.com/garrytan/status/1971592035368083901)
+
+---
+
+The funny thing about Apple’s AI problems is that they could just open the platforms eg allow Siri to be replaced by other voices and done deeper open APIs for AI software providers 
+
+The consumer pref for Apple hardware would be unchanged and the fear over moats would subside
+[open](https://x.com/garrytan/status/1971567683771809801)
+
+---
+
+Feels like Apple is grasping
+
+If a person holds sand gently in an open hand, it remains; but if squeezed tightly, the sand slips through the fingers, and the harder one tries to hold on, the faster it escapes.
+[open](https://x.com/garrytan/status/1971568053721977052)
+
+---
+
+The reason that AI isn’t going to wipe out jobs in the way that some predict is that we consistently make the mistake of thinking that when we make something more efficient, you need commensurately less supply. 
+
+It turns out that in a significant number of fields, better
+[open](https://x.com/levie/status/1971226298786906490)
+
+---
+
+.@sama: If I had to pick one favorite book, I would pick The Beginning of Infinity by @DavidDeutschOxf.
+
+Even if you don’t read the whole thing, the first 40–50 pages are, I think, the most wonderfully optimistic take on why—even in a world with AI—we’re never going to run out of
+[open](https://x.com/arjunkhemani/status/1971219577745903938)
+
+---
+
+The goal is just to 
+
+a) Make education so great that even billionaires can't buy anything better, then 
+
+b) Make that affordable for as many people as possible.
+[open](https://x.com/chrisman/status/1971404353744536052)
+
+---
+
+The same grifter who posted lies about YC’s unicorn rate just posted all the confidential slides from Summer 2025’s Demo Day
+
+It’s all so tiring
+[open](https://x.com/garrytan/status/1971297242075250880)
+
+---
+
+Introducing Perplexity Search API
+
+We've built a search index of billions of webpages to provide real-time, quality information from the web.
+
+Now developers have access to the full power of our index, providing the most accurate results in milliseconds.
+
+https://perplexity.ai/hub/blog/introducing-the-perplexity-search-api…
+[open](https://x.com/perplexity_ai/status/1971274917401461236)
+
+---
+
+A few things are true:
+
+> This website is cool
+> Parking enforcement is Good
+> That @sfgov has a SEAL team 6 for parking but lets drug traffickers have free rein over Soma and Tenderloin is really backwards
+[open](https://x.com/kane/status/1971277735457865893)
+
+---
+
+Palmer on when to fight back vs. let it go
+
+"Three categories..."
+
+1) people in sustained fights against you (you have to engage them or they’ll keep repeating things and it’ll take you eight years to undo it)
+
+2) people picking up a lot of traction lying about you
+
+3) people who
+[open](https://x.com/lulumeservey/status/1971282364354658776)
+
+---
+
+OSS is do-ocracy. You accrue rights and privileges by getting shit done. and solving people's problems.
+
+When a portion of the community gets too focused on stuff which doesn't result in better software, people will eventually notice and stop paying attention to them.
+[open](https://x.com/nateberkopec/status/1971138189655236705)
+
+---
+
+"AI isn't replacing radiologists" good article
+
+Expectation: rapid progress in image recognition AI will delete radiology jobs (e.g. as famously predicted by Geoff Hinton now almost a decade ago). Reality: radiology is doing great and is growing.
+
+There are a lot of imo naive
+[open](https://x.com/karpathy/status/1971220449515516391)
+
+---
+
+At NOX METALS we want to double, triple, and quadruple down on content/social/marketing. 
+
+This is where 90% of our RFQs come from.
+
+We are hiring for a position to help us grow our reach. 
+
+If you’d like to help supply America’s industrial base and want to build out of a Detroit
+[open](https://x.com/zanehengsperger/status/1971265004835045769)
+
+---
+
+There’s a small percentage of insane people in open source that want to hurt others for not being insane like them. They used to have power and now they don’t. We don’t have to care about what they say anymore. Let us never return.
+[open](https://x.com/jordwalke/status/1971097506764484755)
+
+---
+
+1/2   
+
+Congratulations @juicebox_work on raising a $30m Series A from Sequoia and crossing $10m ARR in a short time with a small team!  
+
+I spoke with @davepaffenholz and @ishangpta
+about the multiple pivots to find this idea, why companies like Cursor, Ramp, and Perplexity use
+[open](https://x.com/harjtaggar/status/1971267013139112195)
+
+---
+
+So proud of my wife @slimmette for publishing her first NYT Bestseller and huge thanks and congratulations to @abigailhingwen for making a book for young readers that all kids should read
+[open](https://x.com/garrytan/status/1971250208848941076)
+
+---
+
+Buy the book The Vale here
+
+My 10 year old absolutely loved it
+[open](https://x.com/garrytan/status/1971250682650034237)
+
+---
+
+I made a video with Abigail when the book launched last week you can watch here
+[open](https://x.com/garrytan/status/1971250451619381599)
+
+---
+
+It’s such a terrible mental tax on builders that divisive clowns just ride in and spew these bullshit terms that they clearly don’t understand themselves in bad faith. 
+
+Ignore & keep building
+[open](https://x.com/tobi/status/1970944464303923687)
+
+---
+
+"If you can't intimidate people into silence and compliance with the woke orthodoxies by threatening their job or their social circle, you might be able to threaten them with actual violence. That's what the "nazi" accusation is there to convey."
+[open](https://x.com/dhh/status/1970994162515513855)
+
+---
+
+AI for retail done right
+[open](https://x.com/garrytan/status/1971230378016055783)
+
+---
+
+Status games for startup founders make founders stupid in a similar way to what too much AI safety training does to LLMs. 
+
+And if you’re in a competitive space you can’t actually afford that noise in your system.
+[open](https://x.com/garrytan/status/1971213874784502154)
+
+---
+
+Interestingly for engineers in corporations it’s a profound form of status game that destroys their ability to ship good products: the political war for promotions and clout internal to an organization
+[open](https://x.com/garrytan/status/1971218943303090493)
+
+---
+
+"I never wanted to be rich or famous, I just wanted to be good. Because if you're good at what you do, and good at who you are, the rest will come - and it will mean something." - Paul Newman
+
+Good at what you do, and maintaining your core as a good person, is the whole game.
+[open](https://x.com/drgurner/status/1971208537629163952)
+
+---
+
+It’s insane that in a single year 1 out every 20 Canadians died from medically assisted suicide
+[open](https://x.com/growing_daniel/status/1971089728759005526)
+
+---
+
+one world government + centralized control of AI = tyranny.
+[open](https://x.com/sriramk/status/1970964018899845213)
+
+---
+
+channeling Ganesha energy
+[open](https://x.com/garrytan/status/1971073141997981859)
+
+---
+
+This is wild. 
+
+If you want to do a startup – but you also want to finish school – you can now get funded by YC *a year early*
+[open](https://x.com/bosmeny/status/1970903692665815235)
+
+---
+
+I think this is a brilliant observation from Lulu: people root for you when they think you deserve more than you've got, and root against you when it's the opposite.
+
+It captures an essential element of good comms...how can you help people think you're underrated rather than
+[open](https://x.com/jaltma/status/1970996801814790480)
+
+---
+
+We’ve tried more code review tools than I can count.
+
+Greptile outperforms them all by a mile. Honestly the only AI reviewer that doesn’t annoy the shit out of me.
+
+Congrats on the raise, y’all!
+[open](https://x.com/jamesreggio/status/1970676966350315801)
+
+---
+
+We're so back! (Also we need to build housing guys!)
+[open](https://x.com/garrytan/status/1970979889986847214)
+
+---
+
+In 2011 I made business cards for YC, kind of a funny walk down memory lane... kind of feel like printing these again!
+[open](https://x.com/garrytan/status/1970979250263195667)
+
+---
+
+They'll do anything to block housing. ANYTHING.
+[open](https://x.com/garrytan/status/1970963654817480738)
+
+---
+
+YC now does Early Decision. Now you really don't have to go work at that quant job or whatever else. You can get to building right away.
+[open](https://x.com/garrytan/status/1970924612608458996)
+
+---
+
+I stand with the families protesting this event. Asian pain is not a virtue signal photo op, and Asians are not your political rehab, Chesa. 
+
+You failed to protect our community. Innocent victims deserve justice, not what you did to our communities.
+[open](https://x.com/garrytan/status/1970916332947607822)
+
+---
+
+it’s such a fascinating loop because corporations self select for ppl good at politics, which further tilts the culture toward theater.
+
+but corporate politics is both a pathology & a release valve. the dysfunction prevents monopolistic competence. if every large org ran at peak
+[open](https://x.com/signulll/status/1970886083480064463)
+
+---
+
+Politics is emergent property of organizational success
+
+The paradox: corporations create politics precisely because they succeeded. Each layer of success adds stakeholders with competing incentives - shareholders want returns, managers want promotions, employees want stability.
+[open](https://x.com/pporebski/status/1970882242273587303)
+
+---
+
+No content found
+[open](https://x.com/garrytan/status/1970879262795420023)
+
+---
+
+This is actually why corporations lose and die, and why startups even have a chance no matter how long the odds or how few resources you have vs corporations
+
+Corporations have an incredible ability to do the wrong thing for internal political reasons
+[open](https://x.com/garrytan/status/1970878274021810468)
+
+---
+
+What if there was a psychedelic that gave you the insight without the bad trips? Now there is.
+[open](https://x.com/garrytan/status/1970875913589133743)
+
+---
+
+In humans and AI, we are always in the search of true insight without hallucination.
+[open](https://x.com/garrytan/status/1970876099161911704)
+
+---
+
+The best of the best are forged not born
+[open](https://x.com/garrytan/status/1970874065431998715)
+
+---
+
+extreme results come from extreme preparation. years of reading hard books shows in your conversations. years of a strict diet shows in your energy. years of consistency shows in your confidence. years of focus shows in your results.
+[open](https://x.com/bluewmist/status/1970854343059677579)
+
+---
+
+So just as the US nukes the cap-exempt H-1B program that universities & research institutes rely on, our largest global competitor is going the other direction:
+
+China is making it much easier for young STEM talent to move there.
+[open](https://x.com/AlecStapp/status/1970864805608092048)
+
+---
+
+Emergent is the best new coding agent that even nontechnical people can use to run their businesses day to day
+
+In the past this was a spreadsheet. Today it’s a full blown working app.
+[open](https://x.com/garrytan/status/1970868223018172727)
+
+---
+
+In the latest Social Radars we talk to @eshear about how he ran Twitch, and in particular why he spent three hours every week preparing for the all-hands.
+[open](https://x.com/jesslivingston/status/1970554174191374527)
+
+---
+
+No content found
+[open](https://x.com/garrytan/status/1970849477948014623)
+
+---
+
+My most toxic trait is the belief that instead of jailing @ElizabethHolmes we should have placed her under YC arrest under the watchful supervision of Garry Tan and forced her to build & rebuild her device over & over again like Iron Man for the next 11 years or until she gets it
+[open](https://x.com/bitcloud/status/1970340570527867270)
+
+---
+
+fintech is gonna be based
+[open](https://x.com/base/status/1970504330626384001)
+
+---
+
+The biggest and most successful accelerator wants you to build on @base 
+
+probably nothing
+[open](https://x.com/0xAneri/status/1970553838106194311)
+
+---
+
+If San Francisco can update the code of a website in less than 4 hours so people don’t have access to parking ticket data anymore, I know that we can do more important things quickly too, but inexplicably choose not to.
+[open](https://x.com/rkeuler/status/1970627031865139420)
+
+---
+
+First interview with Ian Laffey (@ilaffey2) CEO & cofounder of Theseus
+
+Flying drones in GPS-denied environments, experiences in Ukraine, making decisions on intuition.
+
+0:26 Flying in GPS-denied environments
+8:40 Strapping an Android phone to a drone
+16:55 Why delays are so
+[open](https://x.com/ti_morse/status/1970637165974679872)
 
 ---
 
@@ -3624,39 +4701,55 @@ At this point CAHSR phase 1 will cost similar to an inflation-adjusted Apollo pr
 
 # hvpandya
 
-'Because your long road has no arrival.'
-
-What a line.
-[open](https://x.com/hvpandya/status/1968634281225298329)
+The 747 is probably the best looking aircraft ever.
+[open](https://x.com/hvpandya/status/1971971173140627637)
 
 ---
 
-Peace.
-[open](https://x.com/hvpandya/status/1968362782061166952)
+Introducing Nama – a storytelling studio for startups
+
+Dear friends,  i’m excited to share that I’m launching Nama, a storytelling studio that helps founders launch and tell compelling stories. 
+
+⨀
+[open](https://x.com/waqasali/status/1970206568399466789)
 
 ---
 
-Hardik Pandya is probably the only cricketer who wears a Richard Mille (worth $1M+) on field while playing competitive sport. 
+ Canvas Mode & Reactions 
 
-The only other athlete that comes to mind is Rafael Nadal.
-[open](https://x.com/hvpandya/status/1967256635627413806)
+→ Browse essays (and move them around) spatially on a canvas
+→ Pin some emoji reactions
+→ Go crazy with reactions on mobile (~ tap tap tap ~)
 
----
+My blog hasn't had 'feedback' for years. Added something lightweight now. 
 
-blog articles should come with a recommended background soundtrack its best read with.
-[open](https://x.com/hvpandya/status/1967214550824194145)
-
----
-
-Great weekend read.
-[open](https://x.com/hvpandya/status/1966909248153235936)
+Check it out!
+[open](https://x.com/hvpandya/status/1970171445432218016)
 
 ---
 
-On a more cheerful note, IIM-B campus is always a treat to visit.
+Canvas mode: https://hvpandya.com/canvas
+[open](https://x.com/hvpandya/status/1970172253963948187)
 
-Thanks @pacificleo for the invite 
-[open](https://x.com/hvpandya/status/1966523382284812633)
+---
+
+Tried using @OLX_India today. Absolutely unusable.
+
+Here’s how I’ll build it today if I were to:
+
+List a product with pictures and a long voice note → Format everything with AI → nice PDP.
+
+Handle incoming negotiation chats with info AI already knows.
+
+Inform when deal is done.
+[open](https://x.com/hvpandya/status/1969639281854726355)
+
+---
+
+One of my most important observations.
+
+When % time in a workday is spent on internal kung-fu versus competing in the market, everyone loses. Most of all, the product.
+[open](https://x.com/hvpandya/status/1969634719232115074)
 
 ---
 
@@ -3664,15 +4757,92 @@ Thanks @pacificleo for the invite
 
 # PalmerLuckey
 
-All it took to stop their revolution was 5 minutes of very, very light drizzle.
-[open](https://x.com/PalmerLuckey/status/1968764352917303502)
+I am of the strong opinion that NATO standards and norms around helmets and body armor should reflect the weapons that define modern warfare - airburst munitions, drone attacks, etc.
+
+Optimizing for low-velocity 7.62 rifle threats made sense once upon a time, but no longer.
+[open](https://x.com/PalmerLuckey/status/1972069622133543193)
 
 ---
 
-Matt was kind enough to prepare coffee and bagels for the Democratic Socialists of America protest at Anduril HQ today.
+@PalmerLuckey 13 years since we met you at @QuakeCon. This is my buddy Cody and we were checking out the Rage demo.  You were very cool and excited. Feels like an eternity now but hope you’re still having fun 
+[open](https://x.com/mrshlubb/status/1971754112569270336)
 
-We haven't actually sold anything to the IDF/"IOF", and we have nothing to do with Israel/Gaza/Palestine/etc, but never let the truth get in the way of those
-[open](https://x.com/PalmerLuckey/status/1968756767053201829)
+---
+
+Rayman is back on cartridge for his 30th anniversary!
+
+Play it now on Chromatic.
+[open](https://x.com/modretro/status/1970524104060215315)
+
+---
+
+ModRetro has teamed up with @Ubisoft to rerelease some of their greatest classics, starting with Rayman!
+
+It has some of the best graphics of any Game Boy Color title, late-cycle developers truly mastered the hardware - it shipped months after the Game Boy Advance was announced!
+[open](https://x.com/PalmerLuckey/status/1970679918947393771)
+
+---
+
+"We are also supporting US national security through our work developing augmented and virtual reality technologies. Through our partnership with Anduril, we are developing a range of wearable products to help maintain America’s technological edge. 
+
+This program represents the
+[open](https://x.com/PalmerLuckey/status/1970670843106861379)
+
+---
+
+As a proud American company, Meta wants to play its part in ensuring the US and its closest allies have the best tools at their disposal to defend themselves, keep their citizens safe and their economies prosperous. Llama has been used to help develop advanced AI tools for the US
+[open](https://x.com/PalmerLuckey/status/1970670881807704069)
+
+---
+
+For the people who thought I was joking about Matt's bagels and coffee:
+[open](https://x.com/PalmerLuckey/status/1970329072250298632)
+
+---
+
+No content found
+[open](https://x.com/PalmerLuckey/status/1970329136553173178)
+
+---
+
+I am going to be retweeting a Meta blog post tomorrow.  First time in a very long time!
+[open](https://x.com/PalmerLuckey/status/1970326906861215769)
+
+---
+
+Thanks, @saquon!
+[open](https://x.com/PalmerLuckey/status/1970298779120345272)
+
+---
+
+If you are going to say something, say something!
+[open](https://x.com/PalmerLuckey/status/1970271721279365582)
+
+---
+
+Jason DID apologize in the moment.  Then he took it back and said he isn't sorry because everything he said was accurate.
+
+It is pathetic to frame this as just "comments" that came after my termination as opposed to the truth, which is that he actively worked to make it happen.
+[open](https://x.com/PalmerLuckey/status/1969592223454150934)
+
+---
+
+I got into a bit more detail in the post below, but TL;DR I will give $10M to charity if Jason can substantiate his very recent false claims about me and my board of directors.
+
+But he won't.  Because he is an image-obsessed liar.
+[open](https://x.com/PalmerLuckey/status/1969594211541663981)
+
+---
+
+Says the NPC who spent a decade calling for tech founders to be fired for supporting Trump and celebrating when it worked.
+[open](https://x.com/PalmerLuckey/status/1969190465246237167)
+
+---
+
+My offer to give $10M to any charity of Jason's choosing remains valid.
+
+But he won't take me up on it, because he is desperate to pretend my investors are secretly friends with him and disagree with me.  People like Jason can't bear to admit to lying.
+[open](https://x.com/PalmerLuckey/status/1969191619439079889)
 
 ---
 
@@ -3692,336 +4862,227 @@ No content found for this user.
 
 # BillAckman
 
-A few facts, corrections, and receipts to dispel some misinformation going around social media:
+I had the opportunity to speak to the students, faculty and alumni of the Citadel, one of our country’s most important military colleges. It was a great experience. 
 
-The @TPUSA Hamptons event was not held at my house, but rather at a hotel in Bridgehampton. As I previously explained, I did cover the cost of the event, ie, travel, food, and lodging
-[open](https://x.com/BillAckman/status/1968146680961765788)
-
----
-
-'You have no idea the fire you have ignited.' - Erika Kirk 
-
-The legacy of Charlie Kirk.
-[open](https://x.com/WhiteHouse/status/1968842140890333590)
+The Citadel Finance Speaker Series Featuring Bill Ackman
+[open](https://x.com/BillAckman/status/1972063567374700924)
 
 ---
 
-Thread: article by former US State Department attorney explains that British & French recognition of Palestine will reward terrorism, make Middle East peace less likely, contradict international law, and endanger Europe's security by helping Russia manipulate the Scottish,
-[open](https://x.com/ordefk/status/1968884044390875339)
+2 rockets were fired (again) from Gaza towards the south of Israel. They failed and dropped inside Gaza. Will there be an outrage against this war crime and against those who not only target Israeli civilians but also - end up killing their own? No. The reason is in the next
+[open](https://x.com/ICK_GalG/status/1972618289302909353)
 
 ---
 
-The UN has lost all of its credibility. Pathetic.
-[open](https://x.com/BillAckman/status/1968979166050558306)
+Where’s @ZohranKMamdani hiding???? It’s abundantly clear at this point that @andrewcuomo is the adult in the room we need to lead this city.
+[open](https://x.com/80zbaby80/status/1972094668302336099)
 
 ---
 
-UPDATE: In the past 8 days, TPUSA has received 62,000+ requests from high school and college students nationwide to start a chapter or get involved with an existing chapter.
+Cuomo only lost the primary by a few points — on a day that was nearly 100 degrees, in a closed primary in which only Democrats could vote (and only 1/6 of them did). Very few moderate Democrats expected Mamdani to win, and as a result, very few went out to vote. 
 
-@tpusastudents
-[open](https://x.com/TPUSA/status/1968825732974399957)
-
----
-
-Israel is not committing genocide in Gaza and the UN commissioned report did not show in any way Israel has specific intent or actions of genocide in Gaza. Read my latest @FreeBeacon
-[open](https://x.com/SpencerGuard/status/1968871950417072291)
+Overall, less
+[open](https://x.com/BenTelAviv/status/1972485984441839875)
 
 ---
 
-Remember, @realDonaldTrump and key Admin players, Bill @pulte, @howardlutnick and @SecScottBessent, have stated so many times that "it's time Main Street Wins!"  And, there's nothing more Main Street than retirees, nurses, police, fire, teachers, and so many other long-term
-[open](https://x.com/g_buckman/status/1968746800233505200)
+Exclusive: @andrewcuomo addresses Staten Island concerns, including zoning, BESS sites, bail reform
+
+Fight & Deliver Party
+[open](https://x.com/KleoDevi/status/1972060062714941851)
 
 ---
 
-Nobody can compare to Charlie!
-[open](https://x.com/CharlieKirk4evr/status/1968343608769343744)
+BREAKING: Video has emerged of Zohran Mamdani’s intern ripping down hostage posted just days after the October 7th massacre.
+
+These are the people who will be staffed in his Mayor administration.
+[open](https://x.com/EYakoby/status/1972348088489832719)
 
 ---
 
-This guy is amazing! Watch this incredible scissor art of Charlie Kirk!
-[open](https://x.com/LynneBP_294/status/1968287546741542937)
+ ArabCon laughs at October 7 Attacks “condemnation” question, Professor Abdulhadi vows to never condemn armed resistance
+
+At ArabCon, Amer Zahr, adjunct professor at the University of Detroit Mercy School of Law, turned the October 7 attacks into a punchline. He asked, “Do you
+[open](https://x.com/thestustustudio/status/1972364831484506449)
 
 ---
 
-Rest in peace, Charlie. God will take it from here. He has already done so much good in the week since you left us.
-
-I wanted to focus on that while hosting The Charlie Kirk Show today. Tonight on Glenn TV, my team compiled some of the highlights.
-[open](https://x.com/glennbeck/status/1968434793097654773)
+The choice @ericadamsfornyc made today was not an easy one, but I believe he is sincere in putting the well-being of New York City ahead of personal ambition. We face destructive extremist forces that would devastate our city through incompetence or ignorance, but it is not too
+[open](https://x.com/andrewcuomo/status/1972370704793264338)
 
 ---
 
-Indeed.
-[open](https://x.com/RubinReport/status/1968293904425648253)
+.@andrewcuomo Lattina wants to help.
+[open](https://x.com/BillAckman/status/1972357684163916091)
 
 ---
 
-Why do I defend Israel? Because God made a covenant with Abraham and his descendants, an everlasting covenant (Genesis 17:7). Paul says in Romans 11 that the gifts and the calling of God are irrevocable. If God’s covenant with Israel could be broken, then none of us could trust
-[open](https://x.com/DefiyantlyFree/status/1968557217197736300)
+Thank you @ericadamsfornyc for your service for our city and for stepping aside when the time was right!
+
+@CurtisSliwa, you should follow Eric’s lead for the good of NYC.
+[open](https://x.com/BillAckman/status/1972354778031435794)
 
 ---
 
-Charlie Kirk was a great man. He deserves honor - not lies.
-[open](https://x.com/IsraeliPM/status/1968511432032391272)
+These people all walked out of the UN general assembly because they didn’t want to hear Netanyahu speak. Their job isn’t to be protesters. They’re diplomats and their job is to deal with governments they don’t like, but they’re more interested in virtue signaling for TikTok.
+[open](https://x.com/stillgray/status/1971632990251061263)
 
 ---
 
-"The U.N. Genocide Report Against Israel Is an Assault on Critical Thinking" my latest @FreeBeacon  https://freebeacon.com/israel/the-u-n-genocide-report-against-israel-is-an-assault-on-critical-thinking/… 
+BREAKING: The main points of President Trump's plan to end the war in Gaza:
 
-Presented as a "legal analysis" from a trio led by Navi Pillay, the former U.N. High Commissioner for Human Rights, anyone who reads the text with even a
-[open](https://x.com/SpencerGuard/status/1968455853922779275)
-
----
-
-Antifa internal documents "suggest using Israel as a wedge issue" to disunite post-Kirk-assassination unity on the right
-[open](https://x.com/RonColeman/status/1968404874363576588)
-
----
-
-I’m getting really tired of Tucker & his cronies falsely claiming “Charlie agreed with me that Israel is terrible & the problem in America is all the damn Jews….”
-
-I knew Charlie well & indeed the very last conversation we had was how deeply concerned he was about the rising,
-[open](https://x.com/tedcruz/status/1968313257472466949)
+1- The release of all hostages
+2- Permanent ceasefire
+3- Gradual Israeli withdrawal from the Gaza Strip
+4- End of Hamas rule
+5- Demilitarization of the Strip (and granting amnesty to senior Hamas
+[open](https://x.com/EYakoby/status/1971663091067711921)
 
 ---
 
-Here is the beginning of the discussion where I am following up on whether young people should buy or rent which was discussed in depth during the economic discussion I led. You will note the text exchange took place on August 15th:
-[open](https://x.com/BillAckman/status/1968148374286385443)
+"John Spencer...says Israel is applying more measures to minimize civilian casualties than any military in history." Facts. Many of the measures Israel has taken, not just notification methods, but civilian population tracking, daily pauses in battles, distributing their maps,
+[open](https://x.com/SpencerGuard/status/1971607551935742419)
 
 ---
 
-As of this afternoon, in the past 6 days, TPUSA has received 54,000+ requests from high school and college students nationwide to start a chapter or get involved with an existing chapter.
+#Remember_October7
 
-This is just the beginning. @tpusastudents
-[open](https://x.com/TPUSA/status/1968080952913285531)
+https://saturday-october-seven.com
 
----
-
-To All these people
-Crying Online
-About Losing Their Jobs
-For Something They Said..
-
-Imaging Losing
-Your Life For It.
-[open](https://x.com/Adi13/status/1968058292019851747)
+ Warning: sensitive content
+[open](https://x.com/netanyahu/status/1971566627792531940)
 
 ---
 
-Extremely well said by my good friend Seth. Please read in full.
-
-I will always fondly recall this Hamptons retreat as the last time I saw Charlie in-person. I inscribed a copy of my book and gave it to him. He was grateful and said he looked forward to reading it. (He reiterated
-[open](https://x.com/josh_hammer/status/1968050889135927536)
+My latest for @WSJ: how modern conspiracies are just a revival of Gnosticism - the belief that secret knowledge will redeem you - and why that is ruining political discourse.
+[open](https://x.com/joshjappel/status/1971288341120418120)
 
 ---
 
-I was also in the room, and everything Xaviaer says here is accurate.
-[open](https://x.com/josh_hammer/status/1968037886965731783)
+FNMA - Top Institutional HOLDINGS
+[open](https://x.com/usnavycmdr/status/1971552868458172459)
 
 ---
 
-From Charlie Kirk’s Pastor Rob McCoy to me just now for Candace Owens:
-[open](https://x.com/seanfeucht/status/1968012347949322442)
+BREAKING: CAPITAL WORLD INVESTORS disclose fresh $500 million USD investment 53 million common shares in Freddie Mac
+
+$FMCC
+[open](https://x.com/nicosintichakis/status/1971549301760549091)
 
 ---
 
-Today I was proud to receive the endorsement of Teamsters @Local237NY — the hardworking men and women who keep our schools, housing, and neighborhoods safe.
-
-There is no greater responsibility than protecting our kids. Yet right now, New York City has 1,400 fewer school safety
-[open](https://x.com/andrewcuomo/status/1968027320226369724)
+My endorsement of @andrewcuomo below. He is the best candidate. And he is the only one who can beat @ZohranKMamdani.  He is the man for the moment. Please put your disagreements with him aside. I have mine too. In fairness, he did many great things as Governor and Attorney
+[open](https://x.com/jimfornyc/status/1971304890057003498)
 
 ---
 
-Candace Owens is a serial liar, grifter, manipulator, and egomaniac that shows little, to no fruits of the Spirit…
-
-She says outlandish things for clicks, clout & coin, and for some reason, people still follow, defend and platform her.
-
-She’s a disease. Has been for a long time.
-[open](https://x.com/JonnyRoot_/status/1967967592657850387)
+It's almost like Tylenol doesn't want you to use Tylenol while pregnant.
+:@TheEmperorSon
+[open](https://x.com/AutismCapital/status/1970899261987618924)
 
 ---
 
-Clearing the air regarding the Hamptons trip with Charlie Kirk and Bill Ackman. 
+Reuters oof 
 
-What’s true:
-1. Yes, dozens of influencers including myself were invited to an event by Charlie and his team, not by Bill Ackman. Charlie wanted to get to know rising conservative voices and where
-[open](https://x.com/XAVIAERD/status/1968025960797835382)
+2013: Tylenol during pregnancy could affect development 
 
----
-
-Spot on.
-[open](https://x.com/BillAckman/status/1968047976301105408)
+2025: Not backed by science
+[open](https://x.com/MJTruthUltra/status/1970849080382283837)
 
 ---
 
-This is good news if this is true. Has this been confirmed?
-[open](https://x.com/BillAckman/status/1968014988381241675)
+You can’t make this sh*t up! 
+
+CNN THEN:
+
+2021: Painkillers should be investigated to developing fetuses
+
+2017: Study links acetaminophen in pregnancy to ADHD
+
+2016: Acetaminophen during pregnancy may increase risk of hyperactivity in kids
+
+CNN NOW: 
+
+2025: Trump links autism to
+[open](https://x.com/ImMeme0/status/1970882871964430456)
 
 ---
 
-The new UN commission report accusing Israel of "genocide" is impressive. It is an impressive collection of Hamas or distorted data points while leaving out any data that contradicts the false accusations. The report is wild. It contains no mention of:
-
-- Hamas disposition,
-[open](https://x.com/SpencerGuard/status/1967984481484030295)
+Where are the international calls for Hamas to stop using hospitals for military purposes, for Hamas to stop endangering the hospitals, their staff and patients?
+[open](https://x.com/SpencerGuard/status/1970830272141959551)
 
 ---
 
- LIBEL: A UN report accusing Israel of genocide cites a @guardian story claiming that the IDF database shows 83% of those killed in Gaza were civilians.
-
-The story and the numbers were categorically proven to be false.
-
-The UN inquiry's evidence? Fake news.
-[open](https://x.com/HonestReporting/status/1967893975135924648)
+Correct.
+[open](https://x.com/BillAckman/status/1970964797153038753)
 
 ---
 
-Navi Pillay's UN inquiry on Israel just released a report accusing Israel of “genocide.”
+If you’re going to tell the story, tell the ENTIRE story. For twenty years, Jordan occupied Judea & Samaria and Egypt controlled Gaza. 
 
-We asked legal expert Salo Aizenberg to take a look.
-
-Turns out the report is a complete travesty. See his devastating rebuttal here: 
- https://unwatch.org/un-watch-rebuttal-legal-analysis-of-pillay-commissions-september-2025-report-to-human-rights-council/… @Aizenberg55
-[open](https://x.com/HillelNeuer/status/1967924658583507036)
+In that time, Jews were expelled yet again. Yet, no Palestinian state was created. No independence was declared. No institutions of sovereignty
+[open](https://x.com/judeanceo/status/1970646891500294515)
 
 ---
 
-Thank you @CherylWroteIt. You made my day, actually my week!
-[open](https://x.com/BillAckman/status/1967916546204074169)
+.@andrewcuomo speaks the harsh truth.
+[open](https://x.com/BillAckman/status/1970616237571923999)
 
 ---
 
-The two accounts who started the “Israel killed Charlie Kirk” lie, are both from Pakistan.
+BREAKING:
 
-You are being manipulated.
-[open](https://x.com/EYakoby/status/1967386249683153132)
-
----
-
-Charlie Kirk’s wife posted this on her Instagram tonight. 
-
-It’s just so sad.
-[open](https://x.com/LauraLoomer/status/1967792549864542299)
+Trump calls Russia a paper tiger and says he believes Ukraine, with the EU’s help, can  take back all of Ukraine’s territory
+[open](https://x.com/visegrad24/status/1970565534283341922)
 
 ---
 
-Progress.
-[open](https://x.com/BillAckman/status/1967894373578006884)
+"Singapore will recognise the state of Palestine when it has an effective government that accepts Israel's right to exist. It must also categorically renounce terrorism."
+
+Unlike the West, Singapore seems to still have some common sense.
+
+Don't reward terrorism. Simple.
+[open](https://x.com/NiohBerg/status/1970438414227943813)
 
 ---
 
-Some people went to church, bought their first Bible, pledged to be better parents, friends and neighbors and hugged their children after they found out what happened to Charlie Kirk.
-
-And others did podcasts and interviews and social media posts saying Israel killed him, that he
-[open](https://x.com/DefiyantlyFree/status/1967740278506500485)
-
----
-
-The Kirk family and Turning Point USA are preparing defamation lawsuits against media outlets and figures who smeared Charlie Kirk after his assassination.
-
-TPUSA spokesman Andrew Kolvet said on a podcast with Scott Jennings, “We are seeing it all and logging it all. We have good
-[open](https://x.com/AFpost/status/1967811551844249882)
+A Palestinian State for Hamas
+After Oct. 7, nations grant recognition even without reconciliation.
+U.K., Australia, Canada+ others  hardly even pretend that Palestine meets the criteria for statehood.
+[open](https://x.com/lawyer4laws/status/1970450808622981378)
 
 ---
 
-America will not host foreigners who celebrate the death of our fellow citizens. 
-
-Visa revocations are under way. If you are here on a visa and cheering on the public assassination of a political figure, prepare to be deported. You are not welcome in this country.
-[open](https://x.com/SecRubio/status/1967784061721776521)
+This is an accurate summary of the Hamptons @charliekirk11 @TPUSA event from an attendee.
+[open](https://x.com/BillAckman/status/1969500418947355058)
 
 ---
 
-I met today with the United Bodegas of America to lay out my plan to lower grocery costs for the New Yorkers who need it most.
+Genocide is the systematic extermination of a people, not because of what they’ve done, but because of who they are. 
 
- $250M in targeted grocery subsidies for 350,000 working families who earn just above the SNAP threshold.
- Protect bodegas and small groceries — the
-[open](https://x.com/andrewcuomo/status/1967748717873668284)
+When Muhammad ordered the Jews of Banu Qurayza to be lined up, and slaughtered 700 of them in a single night, that was genocide.
 
----
-
-This
-[open](https://x.com/BillAckman/status/1967791461199646954)
+When ISIS stormed into Yazidi
+[open](https://x.com/DanBurmawy/status/1969195653206069326)
 
 ---
 
-This afternoon @RealCandaceO slandered me by accusing me of 'staging an intervention' with Charlie Kirk in which 'threats were made' with respect to his supposed 'evolving stance' on Israel at an event I hosted in the Hamptons.  Candace also intimated that I 'blackmail[ed]'
-[open](https://x.com/BillAckman/status/1967752970260349095)
+True
+[open](https://x.com/BillAckman/status/1969194020074070474)
 
 ---
 
-Obama and Biden kept Fannie and Freddie under the thumb of Washington grifters, who were always looking to milk a dime out of Fannie and Freddie! We’ve put them back to work for the American citizens, not for grifters.
-[open](https://x.com/pulte/status/1967679096529494279)
+So an indoctrinated leftist in a relationship with a trans person assassinated one of the most important conservative voices in America and you have people on the right working hand in hand with people on the left to deflect accountability from the actual killer and the leftist
+[open](https://x.com/DefiyantlyFree/status/1969126902771433743)
 
 ---
 
-It is abundantly clear that the administration wants Fannie and Freddie (F2) shares to go higher in the run up to a share sale. @howardlutnick knows how to talk a stock up and that’s precisely what he is doing here. 
+Adam is the main account driving “Israel killed Charlie Kirk.”
 
-Those that have suggested that the government is going to
-[open](https://x.com/BillAckman/status/1967591777676001406)
+This is what Adam was saying about Charlie Kirk just last month.
 
----
-
-Thank you @ericadamsfornyc for doing the right thing for NYC!
-[open](https://x.com/BillAckman/status/1967491245942722825)
-
----
-
-
-
-As I always said, it was only a matter of time before the Worst Governor in America @KathyHochul would bend the knee to the Communist Antisemite Zohran Mamdani. 
-
-At the exact moment when New Yorkers are looking for strong leadership from their Governor with a majority
-[open](https://x.com/EliseStefanik/status/1967373543198400953)
-
----
-
-He should probably also apologize to the @NYPDnews for saying they “perpetrate an enormous amount of sexual violence”
-[open](https://x.com/melissadderosa/status/1966844691158073353)
-
----
-
-Honored to receive Bishop Calvin Rice’s powerful endorsement this morning at @njworship in Queens: New York doesn’t need extremes, we need unity & leadership that gets results.
-[open](https://x.com/andrewcuomo/status/1967273335282360654)
-
----
-
-My top 3 priorities as mayor: Economic Opportunity, Affordable Housing & Public Safety
-
-Make government work for the people — I’ve done it before, and as Mayor, I’ll do it again
-[open](https://x.com/andrewcuomo/status/1967312488095260849)
-
----
-
-Charlie Kirk had 1.7 million followers on IG before his death. As of now, he has over 11 million followers and counting.
-
-They created an army of Charlie Kirk.
-
-We are Charlie.
-[open](https://x.com/DrClownPhD/status/1966881244500889734)
-
----
-
-Charlie Kirk was unapologetically pro-American, pro-Christian, pro-Israel, and pro–nuclear family. In a way, he became a spokesman for Western civilisation itself. And it was this, above all, that made him so hated.
-[open](https://x.com/Ayaan/status/1967233478401110119)
-
----
-
- Attention Andrew Cuomo! 
-
-Step up your ground game. The Bronx hasn’t seen a team. We haven’t seen literature. Name recognition is not enough. Community leaders haven’t sat down with you yet—and they matter.
-
-If you want to take this city back, you need boots on the ground.
-[open](https://x.com/LattinaBrown/status/1967207530364350662)
-
----
-
-Meet Serena Luciano. She is here on a student visa from Argentina. She currently works as a college recruiter for the University of Illinois College of Architecture, Design, and the Arts @uicsoa where she is also pursuing her masters in Urban Higher Education.
-
-Her words: Charlie
-[open](https://x.com/joma_gc/status/1967021587632452072)
-
----
-
-This is great news.
-[open](https://x.com/BillAckman/status/1967180473995772040)
+“Everyone has woken up to the fact that you’re a shameless fraud. Your legacy is garbage. Your children will have to live in shame with it.”
+[open](https://x.com/EYakoby/status/1969098634323951673)
 
 ---
 
@@ -4035,332 +5096,488 @@ No content found for this user.
 
 # mrmoneymustache
 
-No content found for this user.
+FIRE people! Please join me (virtually) in a fun little news feature for the people of Houston. I just did my chat with Heather and she is a great interviewer. She's looking for more people willing to answer a few questions on their FIRE lifestyle over a zoom call.
+[open](https://x.com/mrmoneymustache/status/1970914015624015873)
+
+---
+
+Just a lil update that the MMM Forum website (forum . mrmoneymustache . com) is currently down as we're trying to switch it over to Cloudflare to fight that bot problem. 
+
+Initial setup looked promising and then this happened and I'm not quite smart enough to fix it myself 
+[open](https://x.com/mrmoneymustache/status/1970630209490788423)
+
+---
+
+WAIT! It's magically working now. Did I just need to wait for some magic Name Server SSL shit to click into place?
+
+In the unlikely event that YOU happen to be a forum user, please let me know if it's working for you too.
+https://forum.mrmoneymustache.com
+[open](https://x.com/mrmoneymustache/status/1970633715865792976)
+
+---
 
 ---
 
 # Adamscrabble
 
-No content found
-[open](https://x.com/adamscrabble/status/1968864455220940981)
+Cuomo has voters like Jimmy Kimmel has viewers
+[open](https://x.com/adamscrabble/status/1972514919691296793)
 
 ---
 
-These kids are not stupid by any means, lotsa academics on the demographic/psychographic of terrorists (domestic and otherwise)
-Theee are high complexity crimes. 
-
-Also lotsa studies that show the way to thwart these type of instances is by using social media and human
-[open](https://x.com/adamscrabble/status/1968808946040185178)
+Too much plot, not enough arrests
+[open](https://x.com/adamscrabble/status/1972500457861025902)
 
 ---
 
-“Massively suspect” is this nonsense of Fuentes/Massie speech. It’s this incredible fetishization of “truth” that can never, ever, be satisfied because a new “hmmmm” will always be introduced, some new angle. 
-Classic eristics bullshit and it’s why intelligent people don’t waste
-[open](https://x.com/adamscrabble/status/1968803659933790294)
+Clinton flashback talking about immigration, amazing. And here we are...
+[open](https://x.com/adamscrabble/status/1972451548728066070)
 
 ---
 
-Bro, Candace Owens quoted Kanye west lyrics like it’s fukcen gospel, yet had to have her asst find out who authored “all the world’s a stage…”
-She’s an idiot. Why do you even bother letting this bs into your head. You coulda bought any stock and be up in the past 48 hours, yet
-[open](https://x.com/adamscrabble/status/1968782499523309914)
-
----
-
-Pragmatic ambiguity and semantic foggy scene emplotment. Idiot plots, for idiots
-[open](https://x.com/adamscrabble/status/1968775547560796218)
-
----
-
-OKLO solves this
-[open](https://x.com/LAModernArts/status/1968775192907255975)
-
----
-
- “ok, but other than there be no evidence of it, it’s true!”
-[open](https://x.com/adamscrabble/status/1968768940034723937)
-
----
-
-$OKLO is everything they said Bitcoin was
-[open](https://x.com/adamscrabble/status/1968766169717875009)
-
----
-
-Never complain about taking a profit
-[open](https://x.com/adamscrabble/status/1968763229162582509)
-
----
-
-Remember to remember. 
-Visuals are adhesive. 
-
-So here’s Charlie Kirk (RIP)
-
-and a reminder of what corporations did to us in 2020, they tore the country apart. 
-
-ABC dropping Jimmy Kimmel
--  is just the beginning of normie ‘restitution’
-[open](https://x.com/adamscrabble/status/1968757497407185038)
-
----
-
-I just thought you should know as you try to find ways to save money to pay your bills that we sent $8.2 million to Vietnam to create gender-just rice
-[open](https://x.com/RealAndyLeeShow/status/1968749349078171731)
-
----
-
-Memory consolidation (doesn’t mean the memory has to be true) is 5th gen info war
-[open](https://x.com/adamscrabble/status/1968750883631468640)
-
----
-
-5th generation info war
-[open](https://x.com/adamscrabble/status/1968750385423687761)
-
----
-
-Should include something about Tom Cruise
-[open](https://x.com/adamscrabble/status/1968749703186551187)
-
----
-
-"O most ingenious Theuth, the parent or inventor of an art is not always the best judge of the utility or inutility of his own inventions to the users of them"
-H/t @M_Millerman
-[open](https://x.com/adamscrabble/status/1968747446709658000)
-
----
-
-Yas Queen $OKLO‍
-[open](https://x.com/Simemeulation/status/1968744688506007959)
-
----
-
-Are there any known biz interests shared between chuck callesto and Col Doug Macgregor, like X accounts, news orgs, etc?
-
-They seem to tweet the same 
-[open](https://x.com/adamscrabble/status/1968744580066484455)
-
----
-
-Besides the political points being made by @adamscrabble, this is an interesting demonstration of AI's inability to parse ambiguous question that a human would have no problem with.
-
-In this case the Grok used an article's publish date as the date Charlie Kirk was assassinated.
-[open](https://x.com/IanFelipeSays/status/1968735527944814796)
-
----
-
-The ghosts of Amazon's earnings, past, present and future. Also starring Amazon Web Services. Do monopsonies become monopolies?
-[open](https://x.com/adamscrabble/status/1968741517671174400)
+No. Not possible. 
+X is withholding the api access needed
+For example: In 2022 I blocked all the accounts that were rt’ing the crazy lying stupid stuff from poseur James Vasquez and da NAFO brigade, used a tool called liker blocker
+These days u can’t do that, and so on and so on
+[open](https://x.com/adamscrabble/status/1972457185222484396)
 
 ---
 
 No content found
-[open](https://x.com/adamscrabble/status/1968740635935912135)
+[open](https://x.com/adamscrabble/status/1972451929247957130)
 
 ---
 
-Great catch! @grok please explain in detail, citing the sources of your reasoning and search, how you came up with the wrong date of Charlie Kirk’s assassination?
-[open](https://x.com/adamscrabble/status/1968732452660060404)
+“I’m gonna… bring back some of the lost art and practice of speech writing… underused by people in this world...Once a year you should deliver a good speech, and we can help you with this.”
+~@Alex_Danco
+[open](https://x.com/jposhaughnessy/status/1972444873228968353)
 
 ---
 
-Here’s me asking grok, this is such a huge improvement from prior gen
-[open](https://x.com/adamscrabble/status/1968730674400989478)
+No content found
+[open](https://x.com/adamscrabble/status/1972445050866201043)
 
 ---
 
-lol, nah, I think Musk and the team at X and Grok are (very) aware of the fragility of grok and its vulnerabilities. 
-For example the Candace Owens fabulations are clearly intended as an attack on grok’s “memory” and  hampers Grok, and users ability to extract “meaning” (as it’s
-[open](https://x.com/adamscrabble/status/1968726263301914877)
+I knew Mario and Matilda well as well as his biggest donors and nonprofits - helpUSA and mentoringusa. But whatever, u do u
+[open](https://x.com/adamscrabble/status/1972432887128695063)
 
 ---
 
-If you refuse to exercise power when you have it, then your adversaries will know they can unilaterally torment you when they have power. 
-
-Sad that it took until 2025 for everyone to understand.
-
-And a lot are still playing dumb. 
-
-Less than useless.
-[open](https://x.com/Cernovich/status/1968712299276878151)
+Please Tom we need your help
+[open](https://x.com/NectarFightBJJ/status/1972429638187340158)
 
 ---
 
-And for those complaining of FCC “pressure” to motivate ABC’s decision, know that SCOTUS backed this behavior 6-3 in 2024.  The left cheered.  Welp, first rule of boomerangs. 
-[open](https://x.com/laightrepublic/status/1968716742017839451)
+Small chance Tom Cruise can enter as a write-in and save the day
+[open](https://x.com/BowTiedKhan/status/1972428484879569291)
+
+---
+
+Politics, is political. No?
+[open](https://x.com/adamscrabble/status/1972427780316155938)
+
+---
+
+Reality is that Cuomo has virtually no apparatus needed to win an election. It’s all just outsourced bs. 
+And I know the shops that were hired, so is what it is
+[open](https://x.com/adamscrabble/status/1972427040801620142)
+
+---
+
+Sliwa is there to soak up republican consultant money, and to lose
+[open](https://x.com/adamscrabble/status/1972425668299477046)
+
+---
+
+I hope, but don’t think Cuomo can win. 
+There is still so much resentment out there from the voting public because of his Covid tyranny, committee on corruption he closed down and so on. 
+His campaign message is
+ “hey I’m a crook and I tore the state apart and bankrupted
+[open](https://x.com/adamscrabble/status/1972420594697121981)
+
+---
+
+ @TheJusticeDept under @AGPamBondi has been very public that they have no interest or appetite in investigating or prosecuting these  crimes. 
+You could give them a case on a silver platter and they would look the other way. Sux but true
+So why bother 
+[open](https://x.com/adamscrabble/status/1972407029168996765)
+
+---
+
+Copy and paste this term into X search
+
+follow @ResisttheMS from:atensnut
+[open](https://x.com/adamscrabble/status/1972402532074041752)
+
+---
+
+Indeed. Why does musk like this Macedonian account, and its affiliate members, so much?
+His tweeting the account is a payment - as it affects the X ad revenue payout
+[open](https://x.com/adamscrabble/status/1972388906483290415)
+
+---
+
+ Flashback: Why did Microsoft buy Yammer 
+
+ $1 billion was a bargain if it improved intimacy with their end users. And it did 
+[open](https://x.com/adamscrabble/status/1972364757417238622)
+
+---
+
+A lot of the innovation in crypto / porn / vitality bots etc happened on blue sky and when that site lost momentum/appeal, the bots, and the advancement in scripts, etc came to X. 
+Hard problems to solve, nonetheless, Musk shows little interest in doing anything but making the X
+[open](https://x.com/adamscrabble/status/1972346190067904840)
+
+---
+
+FT: "China has launched a sweeping probe into Mexico’s imposition of tariffs and other trade restrictions on its exports."
+
+The problem for China is that in a world in which everyone is trying to sell more, net exporters are in a much weaker position in trade conflicts than net
+[open](https://x.com/michaelxpettis/status/1972298604615266641)
+
+---
+
+Here’s a ‘pure bot’ (not a hybrid) that has a LLM scripted relevant reply, then points to a crypto bs account. 
+Shows how difficult it is to uniquely detect these things alone using just machine learning. 
+
+This one is also kinda cheap in that it doesn’t have a blue check, so
+[open](https://x.com/adamscrabble/status/1972334474265272598)
+
+---
+
+ There are laws on the books, and precedents tested, that distinguish "free speech" from "corporate speech".
+
+Further the mechanisms that corporations (and other interests) have deployed is 'alignment' 
+('ok, i admit i'm getting paid to say this, but i would do it for free
+[open](https://x.com/adamscrabble/status/1972330199103520914)
+
+---
+
+"If you ask the thief to be the detective, there will be lots of investigations but no arrests" 
+- Tom Cruise
+[open](https://x.com/adamscrabble/status/1972320397984137528)
+
+---
+
+ AI "Scheming represents a significant risk for future AI systems, as it is a unique alignment challenge that worsens with advancing capabilities and poses difficult challenges such as training awareness and non-legible reasoning."
+
+ AI: Stress Testing Deliberative Alignment
+[open](https://x.com/adamscrabble/status/1972317198476538007)
+
+---
+
+.@polinapompliano and I welcomed identical twin boys into the world this past week.
+
+Nico Pompliano & Luca Pompliano.
+
+We feel blessed to have four children as we have built our family.
+
+For every young man out there, I highly recommend getting married and having children.
+[open](https://x.com/APompliano/status/1972287925846151657)
+
+---
+
+I have good friends in VC and finance in Canada and my fam office was a regular stop for Canada politicians and universities to show their deals to, by far the biggest problem that Canada has with AI is **not** the talent 
+- it’s that their universities are thoroughly infiltrated
+[open](https://x.com/adamscrabble/status/1972111465483026599)
+
+---
+
+What was the best tweet you saw this week?
+[open](https://x.com/adamscrabble/status/1972067844625137726)
+
+---
+
+Mm hm, sure. 
+Guy who is way into these little anime looking children sex doll looking ai kid stuff, says it’s all just a misunderstanding. He would never ever do what he did
+[open](https://x.com/adamscrabble/status/1972058784068682055)
+
+---
+
+Sky News dropped the really big bomb:
+
+@elonmusk is in the Epstein files. That is the real reason they have not been made public. 
+
+Have a nice day, EM!
+[open](https://x.com/adamscrabble/status/1972042987493580907)
+
+---
+
+Lib White women be like...
+[open](https://x.com/adamscrabble/status/1971593504934723817)
+
+---
+
+I win
+[open](https://x.com/adamscrabble/status/1971713527523291395)
+
+---
+
+I thought this kid might be astroturfed but then I read this riveting article in the Hindustan Times, so now I know it’s real and totally organic.
+[open](https://x.com/L0m3z/status/1971989285768515757)
+
+---
+
+ Watch this: "Diversity, Equity, Inclusion & Accessibility at NSA Overview"
+- Published on the NSA YouTube on Feb 24, 2023
+
+Wayback link:
+https://web.archive.org/web/20230319144557/https://www.youtube.com/watch?v=HmTQ490YsYQ…
+
+Deleted:
+https://youtube.com/watch?v=HmTQ490YsYQ…
+
+Watch the entire video, so much here...
+[open](https://x.com/adamscrabble/status/1971972493096505424)
+
+---
+
+Get ready for a slew of AI objects pretending to be actresses. They’ll do and say anything you want. Push out any propaganda you like. Never take a sick day or be unavailable.  
+@deadline link below. (H/t @cassianelwes)
+[open](https://x.com/JustineBateman/status/1971993371104497762)
+
+---
+
+Question, ruling out a miracle, should I have requested the dollar back?
+[open](https://x.com/adamscrabble/status/1972002754282639662)
+
+---
+
+A short thread of flashbacks, you should check it out.
+Presented without comment...
+[open](https://x.com/adamscrabble/status/1971626798745375202)
+
+---
+
+Charlie Kirk was always trying to build people up. He used to invite me to TP events but finally understood I don’t like stages. He build his brand for a higher calling, not due to a desire for fame. You can tell the difference, and spot the fakes easily.
+[open](https://x.com/Cernovich/status/1971976847727681604)
+
+---
+
+in September (days ago) TikTok social media influencer John 'Karen' Brennan got all pissy that James Comey is being prosecuted just cos he lied 
+"Geeez Louise"
+
+/end
+for now
+[open](https://x.com/adamscrabble/status/1971952688310227218)
+
+---
+
+In January 2025 former embarrassed white man, now a glamorous Karen is furious that President Trump revoked his security clearance just for lying about the  Hunter Biden Laptop From Hell
+[open](https://x.com/adamscrabble/status/1971952684916965837)
+
+---
+
+In November 2024, John Brennan, having begun his transition to a TikTok Karen, said he really really really doesn't like Tulsi Gabbard
+[open](https://x.com/adamscrabble/status/1971952681737695355)
+
+---
+
+In October 2024 John Brennan really, really, i mean fukcen really, wanted you to vote for Kamala.
+[open](https://x.com/adamscrabble/status/1971952678122172473)
+
+---
+
+ On March 3rd 2022, embarrassed White man, former CIA director John Brennan says that "Putin’s days are numbered — maybe in the double digits"
+[open](https://x.com/adamscrabble/status/1971952674762641645)
+
+---
+
+Here's John Brennan in early 2022 "...I am increasingly embarrassed to be a white male these days."
+[open](https://x.com/adamscrabble/status/1971952671566541065)
+
+---
+
+A brief retrospective on the CIA and John Brennan, it's former Director from 2013 to 2017.
+
+But first, you gotta see these two CIA recruitment videos from 2021
+Just watch this shit, trust me...
+[open](https://x.com/adamscrabble/status/1971952665098584437)
+
+---
+
+It is vital that All Robotics have a “no radio” physical switch.
+
+This means all WiFi/cellular/Bluetooth/mesh cutoff.
+
+We should have meters to verify no radio output.
+
+We should have independent 3rd party verification of all radio outputs.
+
+This is the very minimum.
+[open](https://x.com/BrianRoemmele/status/1971320029162754148)
+
+---
+
+Alpha gpc is slept on for brain energy 
+
+Cheap, high uptake, supports neuronal metabolism, physical performance, not addictive at all
+[open](https://x.com/AJA_Cortes/status/1971937846073479497)
+
+---
+
+In 2010 Tom Cruise brought back his Les Grossman character from TROPIC THUNDER for the MTV Movie Awards, giving various celebrities career advice  So good
+[open](https://x.com/Todd_Spence/status/1971732277492437123)
 
 ---
 
  https://x.com/adamscrabble/status/1428506371545305091?s=46…
-[open](https://x.com/adamscrabble/status/1968714616470454548)
+[open](https://x.com/adamscrabble/status/1971728512106352699)
 
 ---
 
-Go away. Your party is exhausting. Here you signed a letter pressuring Fox to fire @TuckerCarlson Did you forget?
-[open](https://x.com/shawnpisteySC/status/1968703553117061596)
+Hollywood is over. It's no longer a place, but a state of mind.
+[open](https://x.com/gratwickfilms/status/1971695850155135403)
 
 ---
 
-Thanks for the @FCC rule text. And for the FCC chair interview from that morning that people sent.
-[open](https://x.com/JustineBateman/status/1968698772306673834)
+I have a bunch of friends that were being paid as part of the marketing campaign of the movie and - it was kinda required if you wanted to get any future biz from the big Hollywood shops. 
+Some were teachers, others were “raising money” to fund kids going to Black Panther to
+[open](https://x.com/adamscrabble/status/1971690979594756114)
+
+---
+
+Don’t forget, Comey was FBI Director during much of Epstein’s crime spree. Don’t Democrats want to ask him why he did nothing to stop him? They care about the victims right? 
+[open](https://x.com/mazemoore/status/1971687169178980775)
+
+---
+
+One of my goals is to shift NIH toward funding research that is replicable, using less animal models and more advanced technology. 
+
+“One of my key priorities is to guide NIH toward supporting research that emphasizes replicability, relies less on animal models, incorporates
+[open](https://x.com/NIHDirector_Jay/status/1971672348169224234)
+
+---
+
+ Facebook and Google have NO choice but to restore some suspended accounts because it allows Facebook and Google social agents (highly complex conversational bots that have free reign over your history, inferred, friends, social graph etc) to be animated, like a battalion
+[open](https://x.com/adamscrabble/status/1971684653972193313)
 
 ---
 
 No content found
-[open](https://x.com/adamscrabble/status/1968702334617190768)
+[open](https://x.com/DanielleNorgedm/status/1971671686807429161)
 
 ---
 
-Voila
-[open](https://x.com/adamscrabble/status/1968696059275690368)
+No content found
+[open](https://x.com/TPUSA/status/1971649369175888105)
 
 ---
 
-lol, I don’t care. Ive written before about how I automate repetitive querying of Grok (and the other LLM’s) and being able to do it “easily” within Grok is def time time saving and lessens all the tasks I had to create
-[open](https://x.com/adamscrabble/status/1968691064702632101)
+Of course Meghan McCain and the idiots at The View are gonna say that the people attacking ICE should be shipped to Guantanamo
+- like they implored with the Jan6ers, right?
+[open](https://x.com/adamscrabble/status/1971680556955144445)
 
 ---
 
-  Update
-[open](https://x.com/adamscrabble/status/1968686759773864125)
+Lake County looks poised to be the most likely Democratic county to flip to a GOP registration advantage next, which could take place as soon as the registrar finishes hand-processing their current stack of registration forms sometimes in 2031.
+[open](https://x.com/rpyers/status/1971677463504998520)
 
 ---
 
- 
-[open](https://x.com/adamscrabble/status/1968467712918643090)
+New tvs have ai that can do that, you can also find almost any subtitle file for shows on Reddit - 
+A. download show (if available) to thumb drive
+
+B. Download the captions file to thin drive, same folder (episode 1, 2 etc) 
+C. Make sure the files are named exactly the same
+[open](https://x.com/adamscrabble/status/1971678991191838836)
 
 ---
 
-Hmm. Dunno 
-[open](https://x.com/adamscrabble/status/1968686123657363610)
+Didn’t DoJ raid many of the lawyers involved in the defense of Trump and his associates - alleging they were part of a conspiracy or sumting?
+[open](https://x.com/adamscrabble/status/1971677437999427595)
 
 ---
 
-Re-upping. “Unclear why”
-[open](https://x.com/adamscrabble/status/1968680519282937983)
+Great show, not a comedy though, is Fauda - it’s Israeli and also has an English dubbed soundtrack (with excellent voice performers) 
+
+So many good shows out of Israel that found very large intl audiences.
+[open](https://x.com/adamscrabble/status/1971675792070627382)
 
 ---
 
-WHOA! @grok now creates automations *within grok*  such as recurring tasks, recurring questions, etc.,
-Huge huge
-[open](https://x.com/adamscrabble/status/1968673221156216841)
+Well, states use tax credits for example when they are trying to stimulate a sector and it also is a part of their “tourism”
+
+A lot of the move out of Hollywood was initiated and funded after the big hurricanes on east coast and tax credits were used as part of a strategy to
+[open](https://x.com/adamscrabble/status/1971673234048536935)
 
 ---
 
-$OKLO about to hit $100 
-[open](https://x.com/adamscrabble/status/1968665313286742493)
+I’ve seen Kentucky pop up a lot over the years but not sure of the structure and qualifications for $ credits
+[open](https://x.com/adamscrabble/status/1971670312380199085)
 
 ---
 
-After 5 years at Twitter & X, I am excited to share that I ain’t going anywhere. Grateful and honored to do the work alongside humble and tireless colleagues @X and @xAI. Bullish on our collective future as we seek understanding of our universe and shape planetary communication.
-[open](https://x.com/TheRealWifi/status/1968333664363983330)
+Wait until TikTok gets streaming rights for football/soccer etc. 
+soooooon
+[open](https://x.com/adamscrabble/status/1971669825664729293)
 
 ---
 
-Demand for corporations to take action has to be bottom up. 
-Shaming inst. investors, retail boycotts, flood the zone with bad headlines and so on and so on.
-Cos they want us, and expect us, to forget.
-
-"Sleep now"
-[open](https://x.com/adamscrabble/status/1968463909716709692)
+Dunno. Toronto used to be cheap, not sure of current economics. Friends did vampire indies out there and a few hit huge!!!!!
+[open](https://x.com/adamscrabble/status/1971669266786406853)
 
 ---
 
- Luthor v9 - Adam’s Premium Cotton Anal Swabs (w/Rectum Recognition Technology) LLM has achieved total AGI
-[open](https://x.com/adamscrabble/status/1968437229950316601)
+This is correct. 
+
+"Future is TikTok’ish tv and mega sports events" 
+
+Algorithmically personally curated AI actors and stories are coming. 
+
+In the midterm we'll still see "real" characters for the older gens (Boomers) until they die off also for Gen X and a little bit of Gen Z.
+[open](https://x.com/ZeroStateReflex/status/1971668662114570293)
 
 ---
 
- Nice, congrats! I’m always interested in companies hiring intentions - as a leading indicator for the company, the industry and the  economy as a whole.  
-Good stuff!
-
-[open](https://x.com/adamscrabble/status/1968394344286585058)
+Part of the argument that Skydance will use to acquire Warner is that it will greatly improve the user experience by recommendation algorithm
+[open](https://x.com/adamscrabble/status/1971668223541366914)
 
 ---
 
-Having invested in over 1,200 startups over 20+ years at @FJLabs , we use a simple investment heuristic that has served us well: if a founder makes us money and starts another company, we invest even if it is not a marketplace.
-
-FJ Labs first seeded founder @adcock_brett when he
-[open](https://x.com/Jeffreyw5000/status/1968039725823844596)
-
----
-
-In advance of their testimony, what precisely is being subpoenaed from them and their orgs?
-[open](https://x.com/adamscrabble/status/1968379373356204388)
+Move out of Hollywood started decades ago around the time that Sandra bullock started buying up Austin etc real estate and states began aggressively competing for the industry via tax credits and etc. 
+NY did this as well and Patakis wife got Pat Swinney Kaufman (founder of
+[open](https://x.com/adamscrabble/status/1971667914664432109)
 
 ---
 
-A chat with Michael Anton: Machiavelli, Thucydides, a Green Zone in D.C and a tyranny turned inwards
-[open](https://x.com/adamscrabble/status/1968378999559835760)
+There are some **amazing** foreign movies and tv shows https://x.com/bentallmadge01/status/1971665417099006402…
+[open](https://x.com/adamscrabble/status/1971666130965324156)
 
 ---
 
-It’s not some etymological derivative of Rush at all. 
-These are young adults inspecting, interrogating, practicing, rehearsing, articulating and developing the ideas they possess
-- particularly those ideas that are resident in their minds but of unknown provenance. So they are
-[open](https://x.com/adamscrabble/status/1968357476237008953)
+These were cultures very deep into superstition, private religious practice and ceremonies and ritual so their concept of shame and “soul” is an alien concept to our saeculum
+[open](https://x.com/adamscrabble/status/1971663405552706036)
 
 ---
 
- Here's that same composite of about 100 screenshots slowed down a bit so you can remember to remember, so you can get angry again.
-
-It's a reminder of corporations scolding, stigmatizing, tearing things down. 
-If you didn't swear allegiance to their bs you couldn't pass thru
-[open](https://x.com/adamscrabble/status/1967362745067774142)
+Was a good movie but it shows how much damage a star can do to the finished product. Rachel really poisoned the thing. These are malleable stars and they do what they’re told to do, and in this instance Disney was competing with its own staff. 
+Disney doesn’t care as long as they
+[open](https://x.com/adamscrabble/status/1971662931827085379)
 
 ---
 
-The corporate silence on the assassination of Charlie Kirk is deafening 
-No flags in profile, no tributes, no pledges of money to Turning Point USA, no demands for "justice", no talk about "inclusion", no company wide 'listening' meetings
-
-They want you to forget
-[open](https://x.com/adamscrabble/status/1967325358539346357)
-
----
-
-Back in 2018, friends at Allen and Co (who truly hated Trump, but whatever) were *convinced* that Shapiro/Daily wire (or whatever they were called back then) were trying to force Breitbart into a liquidity crunch and buy it (or take out an investor) on the cheap. They were being
-[open](https://x.com/adamscrabble/status/1968188743988216238)
+TikTok as a Hollywood model inculcates a type of talent that is exceptional at autobiographical exposition
+- but it’s VERY solipsistic
+- but it’s excellent at viral moments
+- and the talent can be incubated more cheaply and production company can quickly attrit the bad ‘stars’
+[open](https://x.com/adamscrabble/status/1971662263150170120)
 
 ---
 
-lol these people talk about “endless wars” (a common Fuentes’ian tactic) but never served and they have as much proximity to the wars as people who claim reparations from slavery. They have some type of alchemy that gives them all this world weary wisdom, without having suffered
-[open](https://x.com/adamscrabble/status/1968186702171656200)
+It’s existential problem. 
+Example: because there are so few Hollywood movies/shows coming out now - the entire industry can be staffed with nepo babies doing front of camera and behind camera work. No demand to tech outside and find new talent. 
+This doesn’t suggest that the
+[open](https://x.com/adamscrabble/status/1971661069182460238)
 
 ---
 
-Influencers do have term limits and most have a short shelf life. 
-I’ve given to teens doing peer-to-peer (smoking cessation, asthma, getting out of gangs, nutrition, etc) and Charlie Kirk was so effective because he “is one of them” (the attendees)
-Other influencers (Tucker, et
-[open](https://x.com/adamscrabble/status/1968180605386182776)
-
----
-
-Dunno, I mean there’s lots of lessons from Seneca (and the Hellenic civil wars) but perhaps the most profound, for me, is keep your mouth shut until your old enough and ready to die, and then it’s just about negotiating the means of death and the date. 
-
-Gonna be hard to replace
-[open](https://x.com/adamscrabble/status/1968168412460277938)
-
----
-
-Ex nihilo nihil fit “nothing comes from nothing”
-
-Candace and Tucker have never done anything - they never created a single thing. 
-
-Candace is an idiot who, in her YouTube from yesterday, quoted Kanye West like he’s Shakespeare, but doesn’t even know the author of “all the
-[open](https://x.com/adamscrabble/status/1968165488032137424)
-
----
-
-Candace Owens only goals are to decouple Charlie Kirk from his blackmailers  
-
-To save Turning Point USA and the freedom movement from the blackmailers.  
-
-To save America from the blackmailers. 
-
-The first being their means, the second two, the ends.  
-
-She does not have the
-[open](https://x.com/adamscrabble/status/1968162614493544929)
+Nope! Look at their revenue from licensing
+IP is so profitable and so shaped to optimize advertiser and producer intentions. 
+Problem is there isn’t alternatives anymore. 
+You either shave with Gillette or Shick and both were pumping the Toxic Male bullshit - co they could
+[open](https://x.com/adamscrabble/status/1971656624357233106)
 
 ---
 
@@ -4368,80 +5585,96 @@ She does not have the
 
 # maxlugavere
 
-Amen!
-[open](https://x.com/maxlugavere/status/1968495984473686089)
+New meta-analysis: Lifting weights beats every other form of exercise for protecting your brain as you age.
+
+Just 2x/week, 45 min sessions → biggest boost in global cognition + inhibitory control.
+
+Likely mechanisms: More BDNF, better insulin sensitivity, reduced inflammation,
+[open](https://x.com/maxlugavere/status/1971607331952808343)
 
 ---
 
-This is accurate. 
-
-Replacing HFCS with sugar doesn't make a food healthier, but isn't just "vibes" either... it signals a culture of increased awareness around food. 
-
-Historically, this tracks. Previous generations ate whatever they could find and fill themselves up with. The
-[open](https://x.com/maxlugavere/status/1967990339400323432)
+Addendum for the sake of science communication: In this study, resistance training produced the largest gains in global cognition in healthy older adults while aerobic exercise was strongest for memory and mind-body exercise for executive function. So there is the potential for
+[open](https://x.com/maxlugavere/status/1972101911093694676)
 
 ---
 
-A new meta-analysis of both observational studies and RCTs found that women who started hormone replacement therapy early in menopause (within 5 years) had a 32% lower risk of developing Alzheimer's disease.
-[open](https://x.com/maxlugavere/status/1967663648006140105)
+I am happy to be quoted in @guardian today on the efforts of lawmakers to shield pesticide makers from liability. Such efforts are not in line with making America healthy again, and need to be called out. 
+
+Truth above all. https://theguardian.com/us-news/2025/sep/27/republican-pesticide-legislation…
+[open](https://x.com/maxlugavere/status/1972021101237813272)
 
 ---
 
-The largest failure in modern science is the war against cancer.
-
-For decades, pharmaceutical companies, the NIH establishment, and the old guard of academic medicine have resisted new ideas, clinging to outdated paradigms. Medical schools remain disconnected from the present and
-[open](https://x.com/doctorinigo/status/1966626084033868024)
+Why not just call it Slop?
+[open](https://x.com/maxlugavere/status/1971862778819629132)
 
 ---
 
-A good watch in case anyone has forgotten what actual homophobia looks like. And Charlie shuts it down.
-[open](https://x.com/maxlugavere/status/1967033117275025692)
+“Tylenol can’t possibly affect the brain.”
+
+Cool story, except for the placebo-controlled studies where it dulled emotional highs & lows + reduced social pain. In grown adults.
+
+So yeah, maybe don’t dismiss potential neurodevelopmental effects out of hand.
+[open](https://x.com/maxlugavere/status/1971382407879434477)
 
 ---
 
-Debunking The Biggest Lies Told About Charlie Kirk
-
-(0:00) - Intro
-(10:58) - On Second Amendment
-(12:48) - On Empathy
-(15:42) - On Gay People
-(17:58) - On Trans People
-(24:21) - On Racism
-(28:21) - On Affirmative Action
-(30:58) - On Critical Race Theory
-(34:56) - On Illegal
-[open](https://x.com/amirxodom/status/1966915417999348216)
+And there’s more…
+[open](https://x.com/maxlugavere/status/1971383256517103999)
 
 ---
 
-Carbs don’t just keep your muscles looking full and give you energy when in a cut, they’re also protein/muscle sparing. 
-
-Few get this.
-[open](https://x.com/maxlugavere/status/1966997500830904604)
+Incredible if true.
+[open](https://x.com/maxlugavere/status/1971077212708405666)
 
 ---
 
-How to engage with irrational trolls online: use phrases that instantly signal moral superiority and shut down debate. Do any of these sound familiar?
-
-“Do the work” (You require moral self-examination)
-
-“I’m deeply concerned” (I’m morally superior and want others to know)
-[open](https://x.com/maxlugavere/status/1966929634739831220)
+Why not?
+[open](https://x.com/maxlugavere/status/1970921183915983120)
 
 ---
 
-The problem, in my view, is the institutionalization of labels like “Nazi,” “fascist,” and “bigot” by the liberal media industrial complex. Unlike Trump’s name-calling, this rhetoric doesn’t just insult, it hardwires an “oppressor vs. oppressed” worldview into the discourse and
-[open](https://x.com/maxlugavere/status/1966648246920769676)
+Not all fish oils are created equal—here’s how to spot a high-quality one that actually delivers the EPA & DHA your brain and heart need.
+[open](https://x.com/maxlugavere/status/1970877835813503239)
 
 ---
 
-One of the dumbest articles I’ve ever read. Hugh Jackman got lean. Fear-mongering that this look requires harmful dehydration is next level smooth brain.
-[open](https://x.com/maxlugavere/status/1966625004814299541)
+A new study of 5,000+ Koreans found those eating the least dietary creatine (from food only, no supplements) had 2x the risk of depression, and higher rates of suicidality and anxiety.
+
+Creatine comes almost entirely from meat and fish.
+
+Now for a major caveat: this was
+[open](https://x.com/maxlugavere/status/1970529837690560825)
 
 ---
 
-Victim blaming. Cool cool.
-[open](https://x.com/maxlugavere/status/1966615435291337140)
+You guys loved the last AMA I did and so I’m back today for round 2! 
+
+In this AMA, I dig into protein goals, the truth about saturated fat, the best supplements for health and longevity, clean eating vs. ultra-processed foods, and even the latest science on nicotine pouches—so
+[open](https://x.com/maxlugavere/status/1970264686911508708)
+
+---
+
+Watch the full episode here:
+[open](https://x.com/maxlugavere/status/1970266263764275296)
+
+---
+
+Hopefully these are worth microwaving my brain for.
+[open](https://x.com/maxlugavere/status/1969787118089294159)
+
+---
+
+Does anybody else often find it easier to read books backwards? I’ll start with the last paragraph of a section then work my way back.
+
+For whatever reason, seeing the big picture first and then filling in the details helps the information stick better than the other way around.
+[open](https://x.com/maxlugavere/status/1969418688479838295)
+
+---
+
+A neurosurgeon reveals his top 3 brain health tips.
+[open](https://x.com/maxlugavere/status/1969095728380236107)
 
 ---
 
@@ -4449,84 +5682,133 @@ Victim blaming. Cool cool.
 
 # patrickc
 
-I've always loved the Panhandle in San Francisco and yesterday I realized why. Despite being such an unassuming park (set between two multilane thoroughfares), the trees are enormous. Most trees in California are second- and third-growth, dating from the 20th century; the
-[open](https://x.com/patrickc/status/1968653675318137199)
+Over the past week, @arcinstitute published three new discoveries that I’m very proud of.
+
+• The world's first functional AI-generated genomes. Using Evo 2 (the largest biology ML model ever trained, which Arc released in partnership with @nvidia in February), Arc scientists
+[open](https://x.com/patrickc/status/1971362920350248977)
 
 ---
 
-Also no full GMP for Phase I. Imo US should just literally copy the Phase I playbook from Australia.
-[open](https://x.com/RuxandraTeslo/status/1968450459393237316)
+Recently started at @ArcInstitute to do a 6-month research fellowship. My last job was building React frontends and coding agents at Retool, so friends are understandably confused by my pivot to bio. This notion though that tech and bio are disparate is, I believe,
+[open](https://x.com/fchalissery/status/1972435489136529603)
 
 ---
 
-New from @arcinstitute: the first functional AI-generated genomes.
-
-This is a conceptual breakthrough, but it may also unlock new strategies for combating antibiotic resistance.
-[open](https://x.com/patrickc/status/1968341963729674316)
+Given its status as one of the great American business biographies, I decided to read Titan, on Rockefeller, a couple of months ago. (I also paired it with a little of Tarbell’s history.) Titan is an impressive work, clearly the product of prodigious research. Assorted points
+[open](https://x.com/patrickc/status/1972382568990626228)
 
 ---
 
-You can now subscribe to a print edition of @WorksInProgMag!
-
-For those who aren't familiar, Works in Progress is a sister initiative alongside @stripepress.
-
-Stripe's mission is to increase the GDP of the internet. We want to enable more successful entrepreneurship in the world
-[open](https://x.com/patrickc/status/1968329409506717857)
+[1] https://theatlantic.com/magazine/print/2009/06/what-makes-us-happy/7439/…
+[2] https://web.archive.org/web/20180228154637/http://www.rockarch.org/collections/individuals/gatesletter.pdf…
+[open](https://x.com/patrickc/status/1972382670262088072)
 
 ---
 
-Subscribe here: https://worksinprogress.co/print/.
-
-And some more details in Sam's thread: https://x.com/s8mb/status/1968320461571592323….
-[open](https://x.com/patrickc/status/1968329536099209331)
+Related point (that I agree with) from @dwarkesh_sp: https://x.com/dwarkesh_sp/status/1964741359669309727….
+[open](https://x.com/patrickc/status/1972398384427466815)
 
 ---
 
-No content found
-[open](https://x.com/patrickc/status/1968339338464468997)
+Only 2% of the public believes that a new development will improve their area. No wonder they fight them!
+
+Create Streets’s Nicholas Boys Smith (@boys_nicholas) joined the Works in Progress Podcast to explain what planners and developers have been getting wrong, how to create
+[open](https://x.com/s8mb/status/1971567739513782624)
 
 ---
 
-The EU's ban on digital oil has been harmful for investment.
-
-After the passage of GDPR, venture investment shifted from the EU to the States, with a particularly heavy impact on European data-related ventures.
-[open](https://x.com/cremieuxrecueil/status/1967643207623434667)
-
----
-
-Some very cool new work coming from @arcinstitute over the next few months.
-[open](https://x.com/patrickc/status/1967630162226553289)
+[1] https://worksinprogress.co/issue/how-to-make-an-antibody/…
+[2] https://arcinstitute.org/tools/evo/evo-designer…
+[3] https://x.com/BrianHie/status/1968330378588164591…, https://x.com/samuelhking/status/1968329299364376698…
+[4] https://x.com/BrianHie/status/1970866641497137562…, https://x.com/santimillef/status/1970865951307669834…
+[5] https://x.com/pdhsu/status/1971293821418995988…,
+[open](https://x.com/patrickc/status/1971363220188430471)
 
 ---
 
-Observing some people close to me with chronic health conditions, it's striking how useful Reddit frequently ends up being. I think a core reason is because trials aren’t run for a lot of things, and Reddit provides a kind of emergent intelligence that sits between that which any
-[open](https://x.com/patrickc/status/1967346630539333662)
+New from @arcinstitute: Megabase scale genome-editing in human cells.
+
+Bridge recombinases are a new class of genome editors. In this paper, they were used to invert up to 920,000 base pairs of DNA and also cut out 130,000 base pairs, "with no apparent distance dependency."
+
+Let
+[open](https://x.com/NikoMcCarty/status/1971274769229357505)
 
 ---
 
-[1] https://pmc.ncbi.nlm.nih.gov/articles/PMC6248200/…
-[2] https://reddit.com/r/bodyweightfitness/wiki/kb/recommended_routine/…
-[3]
-[open](https://x.com/patrickc/status/1967346810604913023)
+Today in @ScienceMagazine, we report a new DNA editing technology to seamlessly write massive changes into the right place in the human genome.
+
+The reason gene editing hasn't transformed human health is that current gene editing technologies like CRISPR are very limited.
+
+The
+[open](https://x.com/pdhsu/status/1971293821418995988)
 
 ---
 
-Highly recommend following @NikoMcCarty if you aren't already. I keep learning interesting new things.
-[open](https://x.com/patrickc/status/1966890201147732205)
+New from @arcinstitute: Germinal, a generative AI system for antibody design. Fully open source. Good Q&A with the authors below.
+[open](https://x.com/patrickc/status/1971216862445965326)
 
 ---
 
-Cool company: https://halterhq.com. There's still so much scope for software across the economy!
-
-(No affiliation; just thought it was neat.)
-[open](https://x.com/patrickc/status/1966651710426018257)
+There's a bunch more cool stuff coming over the next few months.
+[open](https://x.com/patrickc/status/1970898593155608864)
 
 ---
 
-Speaking of cool things, you should also check out @posthog's new website: http://posthog.com.
+Live on Hyperliquid.
 
-(In this case, @stripe is a proud investor.)
-[open](https://x.com/patrickc/status/1966651937551786004)
+Built on http://Bridge.xyz
+[open](https://x.com/benhoneill/status/1970808896555217217)
+
+---
+
+The new Cursor site is a work of art. First saw it on mobile but was surprised on desktop. Every window is interactive (they're not videos!). Text boxes are typeable, files clickable, and the demo is customizable (switch between Agent, Tab, Diffs). And you can just tab through!
+[open](https://x.com/edwinarbus/status/1970540886129025208)
+
+---
+
+If you use Chrome and have upgraded to macOS Tahoe, disable "experimental prediction for scroll events" at chrome://flags to make it not feel like you just downgraded to a RAM-starved Windows 98 PC.
+
+(Thank you, @jespervega!)
+[open](https://x.com/patrickc/status/1970617982163525975)
+
+---
+
+Excited to have some great initial infra partners for Tempo
+[open](https://x.com/matthuang/status/1970512241188561043)
+
+---
+
+One in five people want contemporary architecture; two-thirds want a traditional style?
+[open](https://x.com/patrickc/status/1970462792990986607)
+
+---
+
+I always think it's funny that we stopped building nice urban neighborhoods around the time "urban planning" arose as an academic discipline. (First US program at Harvard in 1924.)
+[open](https://x.com/patrickc/status/1970465759433486425)
+
+---
+
+Super underrated book for founders
+[open](https://x.com/lennysan/status/1969491156091486394)
+
+---
+
+A recent reflection, based on conversations with economists and policy leaders, is that there are two superficially similar but importantly different perspectives one can hold with respect to US manufacturing:
+
+* Affinity for manufacturing and physical production is an
+[open](https://x.com/patrickc/status/1969826678307496356)
+
+---
+
+These companies are ostensibly in totally different businesses and yet seem to exhibit the same growth dynamics. What's the explanation? (Pictured: ~$200B -> ~$3T.)
+[open](https://x.com/patrickc/status/1969507208800190469)
+
+---
+
+Very excited for the next round of Cheeky Pint guests: @destraynor, @pmarca with Charlie Songhurst, @tobi, @RJScaringe, and @CJHandmer. 
+
+Subscribe to get each episode as it drops.
+[open](https://x.com/collision/status/1969104042019135950)
 
 ---
 
@@ -4534,37 +5816,138 @@ Speaking of cool things, you should also check out @posthog's new website: http:
 
 # tobi
 
-Fun conversation.
-[open](https://x.com/tobi/status/1968775547795738728)
+Sigh
+[open](https://x.com/tobi/status/1972434113794908573)
 
 ---
 
-The Meta Ray-Ban Displays are absolutely amazing. I used them. You have to try them out.
-[open](https://x.com/tobi/status/1968488815317667840)
+You need to be very concerned about Bill C8.
+
+It allows @melaniejoly to kick anyone off the internet with no trial, no warrant. 
+
+Worse, you won’t be allowed to say you’ve been kicked off.
+
+This is the Emergency Measures Act on steroids, only permanent and secret.
+[open](https://x.com/strauss_matt/status/1971996750220349705)
 
 ---
 
-tbh I this was one of the best things to happen to Shopify's culture this year.
-
-everyone really stepped on their learning on how to use AI tools.
-
-And now myself and my coworkers are constantly delighted by the complexity and efficiency of tasks we can take on with AI
-[open](https://x.com/lizkenyon07/status/1967989430595228165)
+Ottawa’s new anti-hate bill is a mistake
+[open](https://x.com/globeandmail/status/1971864280867000788)
 
 ---
 
- Announcing Build Toronto
-
-Toronto is Canada’s largest city, its economic engine, and its greatest opportunity. If Toronto thrives, Canada thrives. But we all know the city faces deep challenges: unaffordable housing, strained infrastructure, governance gridlock, and a lack of
-[open](https://x.com/build_toronto/status/1967943059636727915)
+Max Verstappen casually going 24 seconds faster than anyone else and going purple in every sector during his first GT3 qualifying 
+[open](https://x.com/autosport/status/1971842499749515485)
 
 ---
 
-really like the progress bar escape sequences. Hope tools pick up this feature soon. 
+Hangzhou is insane. Just look at what these kids do. They casually made a fleet of trash-catching trash cans for a 3 minute video. 232 likes as of now. And all their stuff is like this.
+[open](https://x.com/teortaxesTex/status/1971900842937852387)
 
-Easy to test with try & ai:
-try ghostty-progress && claude "implement a ruby script demo for the progress bar features mentioned at <release-notes-url>"
-[open](https://x.com/tobi/status/1967947984785858759)
+---
+
+ Introducing Builder MP 
+
+It takes in all the bills from parliament and asks, "What would a Builder think of this bill?"
+
+Including votes, question period questions, and analysis – all from a pro-growth lens.
+
+Explore at the link below
+[open](https://x.com/build_canada/status/1971245105223958683)
+
+---
+
+No content found
+[open](https://x.com/IroncladDev/status/1971260556142342475)
+
+---
+
+Excited to share Vibes — a new feed in the Meta AI app for short-form, AI-generated videos.
+[open](https://x.com/alexandr_wang/status/1971295156411433228)
+
+---
+
+ My fellow Europeans
+
+You have to fight ChatControl 
+
+Don't let @vonderleyen read your chats!
+[open](https://x.com/levelsio/status/1971348684500762968)
+
+---
+
+Build Canada is doing amazing work
+[open](https://x.com/tobi/status/1971348127342002222)
+
+---
+
+The efforts of @build_canada are to be applauded!
+
+If you're interested in the future prosperity of Canada, take a look at what they are doing.
+[open](https://x.com/OurDominion_/status/1970919922726588706)
+
+---
+
+It’s such a terrible mental tax on builders that divisive clowns just ride in and spew these bullshit terms that they clearly don’t understand themselves in bad faith. 
+
+Ignore & keep building
+[open](https://x.com/tobi/status/1970944464303923687)
+
+---
+
+Perfect response by David
+
+These are simply terrible people
+[open](https://x.com/tobi/status/1970999977381069316)
+
+---
+
+TBH sometimes at Shopify I thought @tobi went full tilt delulu, but I kept being surprised. He is really just a hopeless optimist who knows what people can achieve and often sees more in others than they see in themselves.
+
+I once told him something he wanted “couldn’t be done”.
+[open](https://x.com/psa10memes/status/1970842778142658877)
+
+---
+
+Canada Tries Clever Counter-Terrorism Strategy Of Giving Terrorists Everything They Want https://buff.ly/WxqH3Yw
+[open](https://x.com/TheBabylonBee/status/1970208743959744889)
+
+---
+
+He’s gonna ban Factorio 
+[open](https://x.com/PabloPeniche/status/1969970511330591162)
+
+---
+
+“founders aren’t fleeing Canada, they are fleeing the friction that Canada has created”
+[open](https://x.com/ddebow/status/1970095412166950931)
+
+---
+
+Erika Kirk’s full speech at Building a Legacy: Remembering Charlie Kirk
+
+@mrserikakirk
+[open](https://x.com/TPUSA/status/1969944725454192767)
+
+---
+
+Qualifying is live! Track @tobi live: 
+https://links.eramotorsport.com
+#IMSA #BattleOnTheBricks
+[open](https://x.com/EraMotorsport/status/1969494541255217626)
+
+---
+
+'“They’re dragging your ass on Bluesky” is a statement that strikes fear into the heart of practically no one. A mob denouncing you as transphobic, racist, misogynist, etc. on Bluesky will have essentially no chance of negatively impacting your career.'
+[open](https://x.com/dhh/status/1969357905330581988)
+
+---
+
+Trying something new and putting our entire ACQ2 episode with @tobi here on X.
+
+We talk: how Tobi "interviews" each new AI model, why he hates consensus, surviving the 2021 stock run-up and pop, how video games have been a parenting hack, and founder-led vs. managerial co's.
+[open](https://x.com/AcquiredFM/status/1969104041486479657)
 
 ---
 
@@ -4572,427 +5955,278 @@ try ghostty-progress && claude "implement a ruby script demo for the progress ba
 
 # levelsio
 
-Yes, the long term goal of Interior AI would be this
+I suggest we propose a counter-law to this:
 
-Scan a room with your phone
+ PoliticianControl
 
-Generate a highly accurate 3d splat
+Where all European citizens can read any EU politician's chats at any moment
 
-Then redesign that with a prompt, styles to pick (like now already), and tools like [ Paint wall ] etc.
-[open](https://x.com/levelsio/status/1969017388235391306)
-
----
-
- It's not even 2026 yet, but you can start using AI world models today!
-
-This is @theworldlabs running inside my app  Interior AI letting you redesign your home with AI and then walk through it!
-
-It's really cool and of course not perfect especially since for now it's based
-[open](https://x.com/levelsio/status/1968997220465660300)
+To keep them all in check
+[open](https://x.com/levelsio/status/1972427747168518402)
 
 ---
 
-Same
+Finally launched http://pieter.com to Hacker News too!
 
-I'm always surprised so many people are interested in LLMs and so few in image, video and world models
-
-Maybe cause I'm more of a creative than a coder
-[open](https://x.com/levelsio/status/1968977052419158443)
+After a year working on it I think it's ready :D
+[open](https://x.com/levelsio/status/1972280372890320983)
 
 ---
 
-the reason you feel insane is because all of your "hobbies" are nothing more than glorified consumption. you won't find God in $15k a month of skis, camera gear, or coffee machines. you NEED to create something, just go BUILD, a chair, a bench, carve some wood, anything, please
-[open](https://x.com/WillManidis/status/1968743626365608269)
+Tried @veedstudio's new talking video model
+
+It's really clean and high res and I'm very impressed, and it's starting to look quite real
+
+Great work @sab8a 
+
+Only thing is it's very slow, it took me 11 minutes to generate this 15 second video  on @FAL
+[open](https://x.com/levelsio/status/1972040534362611943)
 
 ---
 
-He who fights with monsters should look to it that he himself does not become a monster
-[open](https://x.com/levelsio/status/1968805119044059404)
+Okay it SHOULD take less than 2 minutes! Will see if it's fixed with @FAL
+[open](https://x.com/levelsio/status/1972044830076493934)
 
 ---
 
-Tried @StianWalgermo's idea to make a video of the interior transitions
-
-Starting with construction base to the Interior AI design to it adding people
-
-And Suno 4.5+ to add that cliche interior transition music
-[open](https://x.com/levelsio/status/1968670107778924822)
+Like max gen time I'd say for this should be about 2 minutes or people get annoyed
+[open](https://x.com/levelsio/status/1972040664843276693)
 
 ---
 
-Live now on http://interiorai.com!
-[open](https://x.com/levelsio/status/1968794929875783837)
+ChatControl will allow the EU to use keyword filters to probe into what every private citizen says to friends and family about private topics, using AI and machine learning models to create heatmaps of dissidents. Combined with hate speech laws, it’s a recipe for utter disaster.
+[open](https://x.com/MikeBenzCyber/status/1972010402524680676)
 
 ---
 
-Next feature is this
-
- Bring Your Own Furniture (BYOF)
-
-Upload any furniture pic and place it anywhere and Interior AI will place it properly in your room!
-[open](https://x.com/levelsio/status/1968794801232388539)
+Why did none of the 700 million Europeans saw the similarity between Ursula, the character from the Little Mermaid, and Ursula, the European Union's president, yet, to make memes so we can dispose of her through memetic warfare?
+[open](https://x.com/levelsio/status/1971949492707717272)
 
 ---
 
- It turns out @IAmMarkManson was mostly right about Brazil
+"Witch No. 6: Ursula (The Sea Witch) –
 
-Over the last 2 years my Brazil ETF lost 16%, so I sold it
+Ursula is King Triton's banished sister who craves his power and throne in Atlantica. She was once respected and powerful but was exiled due to her dark magic, which she used to gain an advantage over Triton. 
 
-I also visited Brazil many more times (most recent just a few weeks ago) and while I still love it a lot, I think the problems are just a lot deeper than I
-[open](https://x.com/levelsio/status/1968788789951934890)
-
----
-
-AI video is already used in Hollywood productions and Netflix shows
-[open](https://x.com/levelsio/status/1968773395069235503)
+As the sea witch, she
+[open](https://x.com/levelsio/status/1971993871191093401)
 
 ---
 
-2023 was the year of AI avatars
+I had such bad experienced with @Cloudflare's enterprise sales team the last few years
 
-2024 was the year of AI photos
+So I am exstatic they're getting rid of the entire "enterprise" concept completely and making every service accessible by any user by just paying for it
 
-2025 was the year of AI videos
-
-And I think it's becoming clear now that 2026 will be the year of AI world models
-
-Fully interactive explorable 3d worlds generated from one or multiple 2d images or a prompt
-
-In turn
-[open](https://x.com/levelsio/status/1968747296604004362)
+No calls, no sales team, no endless
+[open](https://x.com/levelsio/status/1971978014830231889)
 
 ---
 
-Okay this was too fun to not make it into a feature  
+@DanielLockyer probably has more stories of their incompetence
+[open](https://x.com/levelsio/status/1971980403377688855)
 
-[  Make before/after video ] 
+---
 
-You can run it on any interior design and it uses your original interior photo and the design Interior AI made and combines them
+My aunt died of lung cancer from air pollution
+[open](https://x.com/levelsio/status/1971970033284009993)
 
-Live now :D
-[open](https://x.com/levelsio/status/1968739623489663483)
+---
+
+And no EV break dust isn't as bad as petrol pollution
+
+But yes EV break dust should be fixed too
+[open](https://x.com/levelsio/status/1971974359901524050)
+
+---
+
+http://pieter.com now has  DUCK HUNT
+[open](https://x.com/levelsio/status/1971973948389970366)
+
+---
+
+I am now both far right and related to EVtards!
+
+
+[open](https://x.com/levelsio/status/1971969828325146799)
+
+---
+
+Remember Experts Exchange?
+
+So it was the Stack Overflow before Stack Overflow existed
+
+They'd get trolled for their domain being ExpertSexchange .com back then, so now they actually changed it to Experts-Exchange .com
+
+But much more interestingly, to survive they've pivoted now
+[open](https://x.com/levelsio/status/1971966981810041191)
+
+---
+
+If you don't protect free speech agressively
+
+You end up in a slippery slope of picking and choosing what's allowed to say or not which can change depending on who's in power
+
+And that's exactly what's happening in the UK and parts of Europe now
+
+Unless you fix this fast, there's
+[open](https://x.com/levelsio/status/1971905464431468795)
+
+---
+
+And as I keep saying
+
+You have to protect all types of speech, even the ones you disagree with
+
+Let people say whatever, don't be offended, debate them!
+[open](https://x.com/levelsio/status/1971950754752840175)
+
+---
+
+ My fellow Europeans
+
+You have to fight ChatControl 
+
+Don't let @vonderleyen read your chats!
+
+https://metalhearf.fr/posts/chatcontrol-wants-your-private-messages/…
+[open](https://x.com/levelsio/status/1971948713796162018)
+
+---
+
+ My fellow Europeans
+
+You have to fight ChatControl 
+
+Don't let @vonderleyen read your chats!
+[open](https://x.com/levelsio/status/1971348684500762968)
+
+---
+
+When I hear people talk about burnout
+
+I always have to think of videos like this
+
+You probably have a life that's too easy
+[open](https://x.com/levelsio/status/1971907315520754036)
+
+---
+
+Anyone else has this issue with @FAL that they keep having to login again every week both on phone and MacBook?
+
+I login via GitHub and it's tedious af
+[open](https://x.com/levelsio/status/1971901059993129407)
+
+---
+
+@burkaygur from replies seems everyone has this bug
+
+It's annoying and makes me use other sites cause logging is so tedious every time
+[open](https://x.com/levelsio/status/1971903459588034605)
+
+---
+
+I think producing is the optimal human state, you create things and you can always set new challenges for yourself forever, and that's why it makes you so happy long term
+
+Consuming is necessary but only gives you short term dopamine hits, and also you get used to new levels of
+[open](https://x.com/levelsio/status/1971892600895689043)
+
+---
+
+Fight Chat Control.
+
+You cannot make society secure by making people insecure.
+
+We all deserve privacy and security, without inevitably hackable backdoors, for our private communications.
+
+The fact that the government officials want to exempt themselves from their own law is
+[open](https://x.com/VitalikButerin/status/1971738798653690040)
+
+---
+
+Da Nang meetup today!
+[open](https://x.com/levelsio/status/1971830732164420015)
 
 ---
 
 No content found
-[open](https://x.com/levelsio/status/1968739718885003451)
+[open](https://x.com/vxunderground/status/1971491499687968821)
 
 ---
 
-It should be studied how bad Slack messed up 
-
-They had the biggest communities in tech, open source and digital nomads on Slack
-
-But they were hostile to communities from day one
-
-Then they lost the B2B market to Microsoft Teams
-
-And Discord became the chat app for communities
-[open](https://x.com/levelsio/status/1968705727439962358)
+An American tourist is stunned after trying robotic legs  "Sport Assist Robot",  in China to assist in walking, running, riding, and hiking.
+Cost $1,000
+[open](https://x.com/Girlpatriot1974/status/1971273724117848097)
 
 ---
 
-Added to the http://interiorai.com landing page now with @Cloudflare Stream
-[open](https://x.com/levelsio/status/1968683131952599092)
+Absolutely not
+
+But it's telling a Singaporean would say this
+
+The US is a beacon of free speech exactly because it protects ANY speech (with only one exception: incitement to violence is not allowed)
+
+Free speech (even if you disagree with it) should be protected because if you
+[open](https://x.com/levelsio/status/1971666806919385102)
 
 ---
 
-Very similar
+I'm remotely organizing a  Da Nang meetup w/ @gvtnomad 
 
-Interior AI started from scratch first in 2022-09, then I made Photo AI which was a fork of Interior AI in 2023-02 for people
+Saturday @ 12 noon @ Homnay Cafe 
 
-Then I made Interior AI 2.0 which was a fork of Photo AI in 2023-08
-
-And then now again I took a lot of the new features I made in Photo AI
-[open](https://x.com/levelsio/status/1968656503122092236)
+Everyone is welcome! 
+[open](https://x.com/levelsio/status/1971658462460518631)
 
 ---
 
- I thought of a new mini-feature just now [ Add people ]
-
-Interior and architecture designers always photoshop these weird looking fake people into their mock ups
-
-But with AI you can make those look much more real
-
-Just one button and you can specify how the people look too!
-[open](https://x.com/levelsio/status/1968651867069558980)
+They met 
+[open](https://x.com/levelsio/status/1971630783040561589)
 
 ---
 
-You can add 100s of people if you want
+Someone launched  http://pieter.com on Product Hunt!
 
-And they're all at scale
-[open](https://x.com/levelsio/status/1968653931573084180)
-
----
-
-And they leak EVERYONE's phone numbers
-
-That's why you can't use Whatsapp for communities really
-
-Telegram is much better at it in that sense, users stay private
-[open](https://x.com/levelsio/status/1968648336656785443)
+https://producthunt.com/products/pieter
+[open](https://x.com/levelsio/status/1971589584808260038)
 
 ---
 
-It's still glasses 
+Yes let them speak too
 
-But Meta's new glasses are probably the first real step towards a non-intrusive AR/XR interface
-
-Microsoft Hololens and Google Glass from a decade ago were too chunky and the display too small inside the glasses
-
-You can see where this is headed, computing
-[open](https://x.com/levelsio/status/1968634029780975714)
+Again if you repress speech, it just goes underground and comes back with a vengeance
+[open](https://x.com/levelsio/status/1971560250420388200)
 
 ---
 
-People called me crazy for switching off Slack but it was kinda obvious to see what was coming
+Same re: free speech
 
-I was paying $120,000/year for a chat app that was just "one" feature of Nomad List because they charged per user
+Defend the radical left's free speech agressively
 
-If I didn't pay there'd be only 1000 messages message history
+Because that's how you extinguish them
 
-With
-[open](https://x.com/levelsio/status/1968607779049934995)
+If you ban it, they will come back with a vengeance!
 
----
-
-Thanks, @levelsio! Will you endorse me on LinkedIn?
-[open](https://x.com/edwinarbus/status/1968397606201004140)
+Let them say their idiotic woke shit, with the limit being incitement to violence
+[open](https://x.com/levelsio/status/1971556160378667116)
 
 ---
 
-POV: you finally meet a Padel player
-[open](https://x.com/levelsio/status/1968401362791616895)
+I took @levelsio advice to heart. Now I am here building solo from Vietnam in a $7/night hotel
+[open](https://x.com/AntonioEscudero/status/1971499259838280145)
 
 ---
 
-I like the idea
-[open](https://x.com/creacas/status/1968252995076079654)
+I feel having $230,000,000 is kinda useless if you burned your reputation in the process
+
+Your reputation is worth much more than millions, even billions, even trillions
+
+How are you going to spend $230,000,000 if everyone you meet thinks you're a fraud?
+[open](https://x.com/levelsio/status/1971534070854406463)
 
 ---
 
-Hiring Nikita was Elon's best decision for this app
-[open](https://x.com/xdNiBoR/status/1967971900623372351)
-
----
-
-Gay guys are so efficient
-
-They have specific bars for specific types of guys you're looking for
-
-I just walked past the Bear's Den in Paris where you can only find big gay bears
-
-Imagine if straight dating was this efficient and segmented by types
-[open](https://x.com/levelsio/status/1968250561842839595)
-
----
-
-hey @nikitabier i shouldn't have to put my X links through some random site in order to get proper link embeddings of them
-
-look at how much more information the second one provides, would love to just link to X directly
-[open](https://x.com/RhysSullivan/status/1967742577874174232)
-
----
-
- Seedream 4 text-to-image is also absolutely excellent 
-
-It's way ahead of Flux, probably the best model for people right now, but you can't train it with your own pics though (for now)
-
-It's also has extremely high prompt coherence, which means it follows prompts well, so
-[open](https://x.com/levelsio/status/1968100291791728938)
-
----
-
-500,000 spam accounts suspended
-[open](https://x.com/nikitabier/status/1967958967797318095)
-
----
-
-This is kinda dumb take but I see it a lot
-
-Shitty AI replies long term are negative engagement and scare away users obviously
-
-So no you don't want that
-[open](https://x.com/levelsio/status/1968015689538752684)
-
----
-
-Finally
-[open](https://x.com/levelsio/status/1967999995560464862)
-
----
-
-I love how absolutely useless the Airpods microphone is most of the time
-[open](https://x.com/levelsio/status/1967947066044453338)
-
----
-
-This is @loaibassam sending me a video note
-[open](https://x.com/levelsio/status/1967947121186967679)
-
----
-
-Tried Seedream 4 to change input pic (left) into top down view (right)
-
-Kinda impressive but still not 90 degree top down more like an angle
-
-But imagine exporting interior redesign as a floor plan
-
-Then obviously next is the reverse: floor plan -> 3d photorealisric render with
-[open](https://x.com/levelsio/status/1967917529495388163)
-
----
-
-My local gym is disassembling their Padel court
-
-To replace them with strength training equipment
-
-One of the most beautiful pictures I've ever seen
-
-
-[open](https://x.com/levelsio/status/1967688882683556079)
-
----
-
-Padel is the only game where if you win you are still a loser
-[open](https://x.com/levelsio/status/1967912366928245120)
-
----
-
-Can someone explain why most European national governments are now right wing
-
-But the European Union is still very left wing?
-
-Is it elections? Voting power of Germany?
-[open](https://x.com/levelsio/status/1967911543087280142)
-
----
-
-I am libertarian myself.
-
-However, there's a blind spot in our ideology.
-
-The left wants to be in the power, to do things. To do them to people, even against their will.
-
-Conservatives want to be in the power, and they don't want to do certain things. But they are happy to force
-[open](https://x.com/jiriknesl/status/1967890813901312468)
-
----
-
-It's kinda sad (but expected) when the right is in power (culturally and politically) now they just do same stuff as the left did 10 years ago with cancelling and limiting free speech
-
-I was hoping they'd be smarter than that and defended everyone's right to speech even if they
-[open](https://x.com/levelsio/status/1967888141101961520)
-
----
-
-I love tennis
-
-Great sport that requires skill, effort and strength
-
-That's why Padel is so useless, it requires none of those and then serves you beer after
-
-It "feels" like you did a workout but it's not and that's why most Padel players you see have skinny arms and a belly
-[open](https://x.com/levelsio/status/1967885183329452482)
-
----
-
-As an extremely bad tennis player and fairly good squash player, I tried padel. It was so easy it made me stay. But then I figured I could go on for 4 hours before starting to fatigue. This was not physical enough. It is more a 'play with your friends with belly fat' type of
-[open](https://x.com/LouisLsvr/status/1967877995437179266)
-
----
-
-So @Austen told us to buy 
-[open](https://x.com/levelsio/status/1967725977460781433)
-
----
-
-Padel was a mistake
-
-A short blip in history where mass hysteria of skinny armed men took over
-
-Luckily, nature is healing
-[open](https://x.com/levelsio/status/1967689658231632123)
-
----
-
-Funny everyone hates Adobe so much
-
-We all cheering on and want it to go to $0
-
-Talk about burning down one of the most respected brands in computing in just 10 years for short term profits
-[open](https://x.com/levelsio/status/1967683012373721593)
-
----
-
-Lmfao I accidentally Grok Imagine'd this screenshot wtf is this audio
-[open](https://x.com/levelsio/status/1967646613033357665)
-
----
-
-True, but making a generic app you have much more competition than entering a niche
-
-You can if you got $100M in VC funding to back you and buy lots of ads
-
-If you're indie, you kinda have to go for the niches
-
-Photos of people (Photo AI) and interior design (Interior AI) are
-[open](https://x.com/levelsio/status/1967642803615219874)
-
----
-
-I thought this but then I realized most AI replies are already Verified accounts
-[open](https://x.com/levelsio/status/1967642203087659362)
-
----
-
-When you open Safari and notice @nikitabier's og:image game
-[open](https://x.com/levelsio/status/1967641306341183888)
-
----
-
-Maybe this is how people will finally leave social media etc.
-
-Lots of articles about how it's bad for you the last few weeks
-
-But it's hard to leave
-
-If it gets swarmed by AI bots, people will stop enjoying it (probably? or opposite, enjoy it more?) and leave?
-[open](https://x.com/levelsio/status/1967640226987385032)
-
----
-
-This guy turned his vape into a web server
-https://bogdanthegeek.github.io/blog/projects/vapeserver/…
-[open](https://x.com/levelsio/status/1967639446372876720)
-
----
-
-I still think the biggest existence risk for X is AI reply bots
-
-They're rampant and my understanding of AI is you can only detect an AI reply with a model that's bigger/smarter than the model it's written with
-
-That means you're in an endless cat and mouse game for the infinite
-[open](https://x.com/levelsio/status/1967636430362120372)
-
----
-
-This too
-
-I know Claude etc sometimes add this stuff to your landing
-
-But better to change it back to "2 users (me and my mom)" for honesty
-[open](https://x.com/levelsio/status/1967624184286380467)
-
----
-
-People complain "why my app doesn't take off"
-
-But then they also don't put the effort into getting the basics right like setting up an og:image
-
-Respectfully, you gotta get these basics right!!!!!
-[open](https://x.com/levelsio/status/1967622683480441106)
+Redesign done. Let me know where i should send the stripe link
+[open](https://x.com/pbertrand_dev/status/1970824891382509976)
 
 ---
 
@@ -5000,334 +6234,45 @@ Respectfully, you gotta get these basics right!!!!!
 
 # dhh
 
-The problem with media training: Everyone ends up playing the same role, repeating the same scripted gesticulation. It looks uncanny and fake because it is. They might as well just use AI.
-[open](https://x.com/dhh/status/1969000497609613769)
-
----
-
-HEY is like a tiling window manager in a way: Plenty of familiar elements, yet rearranged in a novel way, which works wonders once you adjust a few long-held habits. 
-
-Once you do, it's hard to imagine having to drag windows around with a mouse again or to use Gmail!
-[open](https://x.com/dhh/status/1968973334135128170)
-
----
-
-We've been taught that actually getting a productive developer environment working is this long, drawn-out process of hunting for a thousand tools. But it really doesn't have to be! We can put all the basics in the box, and it'll just work.
-[open](https://x.com/dhh/status/1968836639129506089)
-
----
-
-2009!! That's the oldest MacBook I've seen with Omarchy yet. Anyone has anything older?
-[open](https://x.com/dhh/status/1968835957630599530)
-
----
-
-We've fully switched the license for Campfire over to MIT now. Do whatever you want, run it however you want, but just don't come asking for a warranty!
-[open](https://x.com/dhh/status/1968834984157847799)
-
----
-
-We got a full guide on how to install Omarchy on vintage Intel MacBooks. There are still a couple of caveats, and you have to turn off secure boot, but overall it's very functional, and far better than being scrap metal after Apple abandoned them. https://learn.omacom.io/2/the-omarchy-manual/97/mac-support…
-[open](https://x.com/dhh/status/1968796599229779969)
-
----
-
-Kinda amazing that Omarchy installs quicker on a 2010 MacBook than macOS 26 does on a 2025 M4 Max . But either way, I love seeing old machines brought back to usefulness after their maker has abandoned them.
-[open](https://x.com/dhh/status/1968790686116860228)
-
----
-
-Ghostty 1.2.0 is out on the Arch repo! So if you're running Omarchy 3.0, you can swap over as easy as Install > Terminal > Ghostty! And you'll have all the theme-switching goodness in @mitchellh's awesome terminal that you do in Alacritty (and Kitty) 
-[open](https://x.com/dhh/status/1968790256481681489)
-
----
-
-Here's the mission:
-
-1) Make something of yourself.
-2) Marry well.
-3) Raise the next generation.
-
-It's hard, but why shouldn't it be?
-[open](https://x.com/dhh/status/1968692652842328453)
-
----
-
-It's a joy to spread love of Ruby and Linux, but to inspire parenthood is divine 
-[open](https://x.com/dhh/status/1968690025144418654)
-
----
-
-Hopecore is the best part of TikTok.
-[open](https://x.com/dhh/status/1968659287388901510)
-
----
-
-Yes, there are endless spirals of hate and despair online. But there are also whirlpools of love and hope. And these videos capture the joy of it better than a million thinkpieces.
-[open](https://x.com/dhh/status/1968662881953632683)
-
----
-
-All this Arch lore of how to get things working on a pre-M MacBook was always there, but boxing it up, and making it work straight off the ISO is how we make the magic of Omarchy 
-[open](https://x.com/dhh/status/1968648535798333570)
-
----
-
-This is awesome! Will find a way to ship with this out of the box soon. AI has been an incredible help in building Omarchy too. All the arcane Linux lore is demystified with ease (although it still hallucinates features ).
-[open](https://x.com/dhh/status/1968637862741512347)
-
----
-
-Installing an OS and getting everything set up shouldn't take hours! Neither should upgrading. We have sub two-minute Omarchy installs now and most v2->v3 upgrades took seconds.
-[open](https://x.com/dhh/status/1968634947083608319)
-
----
-
-Nothing compares.
-[open](https://x.com/dhh/status/1968563682675236934)
-
----
-
-Live demos on stage are always a gamble, but I'd much rather watch someone try and fail than suffer through some slick, prerecorded snooze fest. It's having something on the line that makes it worth watching!
-[open](https://x.com/dhh/status/1968556037281108334)
-
----
-
-Google, Apple, Microsoft and the rest of them have conditioned people to expect that getting service for their software is painful, flow, and futile. When they also host your data, that's an awful experience when things go wrong. It doesn't have to be.
-[open](https://x.com/dhh/status/1968555427185950853)
-
----
-
-If you have the drive to build a successful business, you're often cursed with the obsession to see anything you put your mind to through. Open source is a very productive outlet for such an affliction!
-[open](https://x.com/dhh/status/1968551722952818800)
-
----
-
-I really should have given @Cloudflare a heads up before dropping a highly-anticipated 7GB ISO on them, but @dok2001 offered impeccable service at 2am his time to get us sorted. This should be super fast in a second.
-[open](https://x.com/dhh/status/1968550224994927059)
-
----
-
-"I'm an innovation consulting expert", said the man to another at the airport. No irony, dead serious 
-[open](https://x.com/dhh/status/1968546563027804311)
-
----
-
-As a father of three, I try my best to pass on good ideas, values, and virtues, but I still hadn't considered we could have started the lessons in utero!
-[open](https://x.com/dhh/status/1968540514719858951)
-
----
-
-Omarchy 3.0 is out!! This includes the super-fast new ISO installer, Ghostty(+Kitty) integration, VS Code theme switching, Apple T1 + T2 + Broadcom compatibility, and a million other new features  https://github.com/basecamp/omarchy/releases/tag/v3.0.0…
-[open](https://x.com/dhh/status/1968393467379302639)
-
----
-
-Aaaaand of course I messed up the final ISO . We've pushed out 3.0.1 with the fix. Really flexing those internet pipes today. Extra glad @Cloudflare is sponsoring . New ISO: http://iso.omarchy.org/omarchy-3.0.1.iso…
-[open](https://x.com/dhh/status/1968425619013677520)
-
----
-
-Seems like X doesn't like direct links to ISOs. So just go to http://omarchy.org and hit the ISO download button for the latest 
-[open](https://x.com/dhh/status/1968426986490962403)
-
----
-
-I'm really proud of the migration system we have in Omarchy, which will bring any older version along to the latest. It's built in the image of Rails' migration system, and it's crucial to making the insane release schedule work fluently for everyone.
-[open](https://x.com/dhh/status/1968400998931558453)
-
----
-
-While Omarchy 3.0 ships with Chromium out of the box, we also have full live themeing support for @brave! Just install via Install > AUR (brave-bin), and you'll get themed updates (with a slight delay right now, instant in next Brave). Love that ad-free browsing experience!
-[open](https://x.com/dhh/status/1968400716361355524)
-
----
-
-Note that the Ghostty integration still needs v1.2.0 to be released on the Arch repository. Hopefully that'll happen any second now from @mitchellh! 
-[open](https://x.com/dhh/status/1968393750322848189)
-
----
-
-I loved when Sriram opened our podcast conversation with "I used to hate your guts!", and look where we are now, loving Linux together! It's fine to have opinions about people, but remember to keep them flexible  https://youtube.com/watch?v=Fx8ty8-uD6Y…
-[open](https://x.com/dhh/status/1968268650533827010)
-
----
-
-Fake it till you make it 
-[open](https://x.com/dhh/status/1968241567619334586)
-
----
-
-I recommend Aerospace for the same reason. You can get a taste of a lot of the delicious parts of a great Linux setup on a Mac. An imitation of a tiling window manager might not satisfy in the long run, but could well be a bridge to move onto the real thing on your next upgrade.
-[open](https://x.com/dhh/status/1968244741654691890)
-
----
-
-Ghostty is looking great on Omarchy! With v3.0, you'll be able to choose between Alacritty, Ghostty, and Kitty as your terminal. All three with complete theme support for the built-in themes 
-[open](https://x.com/dhh/status/1968243549633466831)
-
----
-
-I have great respect for the historical contributions that Apple has made to computing in terms of design, aesthetics, and taste. But nothing last forever. I'm just happy we're able to make and have free alternatives. Incredible to watch Linux emerge as a beacon for good design!
-[open](https://x.com/dhh/status/1968215554923332056)
-
----
-
-Doesn't mean everyone is going to love Hyprland or Niri or Quickshell or any of the other beautiful, innovative ways of interacting with a computer. But there's no denying that we're in a completely different realm with Linux. Community now full of folks with great taste.
-[open](https://x.com/dhh/status/1968216345994203282)
-
----
-
-Omarchy 3.0 should install without any additional work on the majority of the pre-M MacBooks. Apple might have given up on them, but many are still fine machines, and Linux can make them run much nicer.
-[open](https://x.com/dhh/status/1968025663513981226)
-
----
-
-This wasn’t true when leftists said it and it’s still not true now that MAGA is saying it — free speech includes the right to say rude, hateful, disgusting and inappropriate stuff.
-[open](https://x.com/mattyglesias/status/1967758799793701058)
-
----
-
-We've finally come around to updating the website after making Campfire FREE! https://once.com/campfire
-[open](https://x.com/dhh/status/1967876937445200109)
-
----
-
-Rails World 2025 recap: 814 Rails devs from 62 countries gathered in Amsterdam for more than two days of the latest news in Rails, technical talks, networking, and one fantastic closing party. Read the highlights here: https://rubyonrails.org/2025/9/15/rails-world-2025-recap… #RailsWorld
-[open](https://x.com/rails/status/1967620769531527498)
-
----
-
-Good news: All the talks from #RailsWorld 2025 are now available online! Revisit your favorite sessions or catch up on ones you missed on the 2025 playlist here: https://youtube.com/playlist?list=PLHFP2OPUpCebhAv1ZWb_978cTl1o-yue-…
-[open](https://x.com/rails/status/1967613919272247405)
-
----
-
-We're going to make Omarchy as good as it can get for Linux gaming! And then, once everything is perfect, I shall make my case to @TimSweeneyEpic once more that we need Fortnite on Linux 
-[open](https://x.com/dhh/status/1967682149374714074)
-
----
-
-My favorite part of the chat I had with @ThePrimeagen and @teej_dv last year was when we talked about having kids. It's incredible that the question even needs serious arguments, but I was thrilled to make them.
-[open](https://x.com/dhh/status/1967514586971886069)
-
----
-
-"It's tough to blame the Brits for being pissed. No matter how hard they voted, Brexit or not, the erosion of their national identity kept marching forward at an ever-greater pace. Not due to some unavoidable cosmic destiny, but due to policy and apathy."
-[open](https://x.com/dhh/status/1967503882604667143)
-
----
-
-Omarchy 3.0 is shaping up to be spectacular! We'll have full support for almost all pre-M Macs, including T1 and T2. No manual intervention needed. Just boot and go! Here's @ryanrhughes' first successful end-to-end T2 install 
-[open](https://x.com/dhh/status/1967292198011187357)
-
----
-
-"If you leave the bozos in charge for too long, the entire organization will be shaped in their image. Tim Cook was a masterful logistics hand to Jobs, but he's been a bozo on product, quality, and care. He's gotta go."
-[open](https://x.com/dhh/status/1967179579526922646)
-
----
-
-Remember that brand new Miele dryer we got in Europe that takes forever to actually dry clothes? Well, it also doesn't work. Because of course it doesn't. Because of course everything needs a computer these days, with terrible sensors, laggy touch screens, and awful error codes.
-[open](https://x.com/dhh/status/1967167322181021740)
-
----
-
-Most days I love computers. I even love them when they fail because as long as they're open source, you can always sign up for an adventure to figure out why and fix 'em. But dryers, fridges, and other appliances are not that. Combining them with computers was a terrible idea.
-[open](https://x.com/dhh/status/1967167796774920436)
-
----
-
-If I ever give up on computers as a career, it'll be to start a line of home appliances that just have great big knobs, boring-but-reliable internals, and premium utility. Like an old Lexus. Toyota reliability under the hood, lovely leather, and ready to drive a million miles!
-[open](https://x.com/dhh/status/1967168275533746558)
-
----
-
-It's incredible that after squandering a decade on Project Titan — the Apple Car long shot — all they were able to salvage was a gauge cluster setup that runs at 12fps, crashes regularly, and leaves drivers driving blind at night.
-[open](https://x.com/dhh/status/1967157105359802508)
-
----
-
-What's even worse is that I know there are car aficionados at Apple. Including senior executives. I've met some at car shows! But none of them cared enough or had the power to stop a buggy, laggy, dangerous Car Play Ultra from shipping. That's a lethal level of corporate apathy.
-[open](https://x.com/dhh/status/1967157861865402572)
-
----
-
-It's the same malaise that's sitting in elsewhere in the org. My wife's iPhone once more failing to wake her up the other day because the alarm feature is somehow still just broken. It's been like this for years. Million reports online. Nothing happens.
-[open](https://x.com/dhh/status/1967158495821942998)
-
----
-
-This is embarrassing for both Apple and Aston. The new fancy Apple Carplay Ultra is so laggy the gauge cluster can't even keep up with the engine revs. It's crazy what's allowed to go out the door in Cupertino these days.
-[open](https://x.com/dhh/status/1967151673861914797)
-
----
-
-Not only is it laggy as hell, it's also glitchy and crashes!! And then you just don't have a gauge cluster at all. IN A CAR?? That's just bonkers. Apple madly, desperately need to get a new asshole in charge. https://world.hey.com/dhh/apple-needs-a-new-asshole-in-charge-0bf46b94…
-[open](https://x.com/dhh/status/1967154359164395809)
-
----
-
-The closest I've come to the feeling of Omarchy on a phone is Android with Olauncher. Gorgeous, distraction-free way to use a mobile phone. I run that on a S25 Edge. Great combo!
-[open](https://x.com/dhh/status/1967140562919977269)
-
----
+No content found for this user.
 
 ---
 
 # tednaiman
 
-Yup.  However by my calculations you could still blame at least ~25% of obesity on REFINED carbohydrates.  As in take any animal and manipulate anything you want in any way, but without REFINED carbs you are going to have at least ~25% less obesity compared to with. 
-[open](https://x.com/tednaiman/status/1968824783921201396)
+This photo was taken with my copy of the previous bokeh monster, the Sigma 105mm F1.4.
+
+However this week the world gets the most bokeh-fied lens ever:
+
+Sigma 135mm F1.4 DG | Art
+
+Check out these graphs I made of the bokeh equation: 
+
+@Sigma_Photo @SonyAlpha 
+ A7RV + 105mm F1.4
+[open](https://x.com/tednaiman/status/1969777960694808876)
 
 ---
 
-I had a really good talk with @jjvirgin — check it out on YT!  
-
-➘ 
-
-Why Most Women Over 40 Struggle with Weight Loss (And the Simple Fix) wi... https://youtu.be/9h2F1ybArO8?si=u0OUy8qrbq7BeWQv… via @YouTube
-[open](https://x.com/tednaiman/status/1968769090182402458)
+FYI — the graphs  show the four current bokeh leaders — 85mm F1.2, 105mm F1.4, and 200mm F2.0 along with the new 135mm F1.4.  All of your other lenses are way below this curve so they don’t even show up here 
+[open](https://x.com/tednaiman/status/1969779372266774970)
 
 ---
 
-amazing congruence between the mouse and human data..
-[open](https://x.com/JohnSpeakman4/status/1968306218050662862)
+More fitness photography 
+
+@SonyAlpha A7RV  50-150mm F2.0
+[open](https://x.com/tednaiman/status/1969769124839800832)
 
 ---
 
-I also uploaded all of Marty Kendall’s data to http://Hava.fit just so you can see more fat vs carb comparisons…and just for fun uploaded the famous Dr. Speakman @JohnSpeakman4 2018 rodent study data as well!  Interesting.    [Dr. Speakman — check out the ‘explorer’]
-[open](https://x.com/tednaiman/status/1968096892921041092)
+No content found
+[open](https://x.com/tednaiman/status/1969189115959587162)
 
 ---
 
-Oh hey just FYI — http://Hava.fit is live again if you want to see that 3d ternary plot of daily average caloric intake vs macronutrient percentages for a zillion person-days of tracking in the http://Hava.co app!  
-
-[spoiler alert — all about the protein]
-[open](https://x.com/tednaiman/status/1968066398980304963)
-
----
-
-I had a good talk with Heather from the Half Size Me podcast.  
-
-➘ 
-
-Why Most Diets Fail — and How Protein Leverage Fixes It | Dr. Ted Naiman...
-[open](https://x.com/tednaiman/status/1967944436962459976)
-
----
-
-My landing page is basically an escape room.  
-
-[hint:  if you see anything flashing in a sort of interesting way, try clicking on it]
-
-If you tire of my antics, you can always go to http://SatietyPerCalorie.com 
-[open](https://x.com/tednaiman/status/1967371868555620420)
-
----
-
-Totally reasonable question! Happy to say that Satiety Per Calorie is a much bigger and better book than The P:E Diet—far more than a repackaging. But don’t just rely on the reviews—if you buy the PDF version it comes with a full money back guarantee!  http://tednaiman.com
-[open](https://x.com/tednaiman/status/1967225597245153764)
+Ok @DrAndyGalpin you are trapped on a desert island with an infinite number of clients. They all want you to give them a resistance training program that will yield maximum compromise between strength, power, and hypertrophy of all musculature, with the highest possible stimulus
+[open](https://x.com/tednaiman/status/1969161346123251788)
 
 ---
 
@@ -5335,164 +6280,221 @@ Totally reasonable question! Happy to say that Satiety Per Calorie is a much big
 
 # bryan_johnson
 
-X is a bunch of wild animals waiting in prey for the next juicy controversy to drop.
-[open](https://x.com/bryan_johnson/status/1968781950304354603)
+Everything breathes together...
+
+culture, laws, religion, fertility, city designs, relationships, sleep, health, pollution, incentives, food 
+
+What do you think the master breath feels in 2026?
+[open](https://x.com/bryan_johnson/status/1972348878579196245)
 
 ---
 
-broke my cycling record today 
-
-Cat 4 competitive amateur racer at 3.6 W/kg
-
-VO2 max est: 57 ml/kg/min
-99th for 48 yr male 
-90th for 20 yr male
-[open](https://x.com/bryan_johnson/status/1968761278530224231)
+it’s freaky friday. who do I swap lives with?
+[open](https://x.com/bryan_johnson/status/1971730757619273798)
 
 ---
 
-I challenged @misraetel to an arm wrestle and he declined because he was intimidated by me
-[open](https://x.com/bryan_johnson/status/1968731648414925309)
+my near death experience
+[open](https://x.com/bryan_johnson/status/1971665810432446767)
 
 ---
 
-Exercise is your best therapist. Go to therapy.
-[open](https://x.com/bryan_johnson/status/1968691552055701628)
+Drinking coffee to keep you awake after 12 cancels out all longevity benefits
+
+Coffee drinkers live longer, but only if you drink it in the morning
+
+Morning-only drinkers:
++ 16% lower risk of death
++ 31% lower risk of cardiovascular death 
+Compared to non coffee-drinkers
+
+If you
+[open](https://x.com/bryan_johnson/status/1971616123494998206)
 
 ---
 
-I consume more extra virgin olive oil than any other food. 
+Something catastrophic has happened. 
 
-Olive oil that’s high in polyphenols (366 ppm) showed favorable effects on cholesterol markers compared to ones with medium levels of polyphenols (164 ppm), according to a randomized crossover clinical trial.
+Yesterday I traveled to the mountains, stayed up past my bedtime, and didn’t have a wind down routine.
 
-EVOO
-[open](https://x.com/bryan_johnson/status/1968489456031408610)
+My sleep deprived state has slowed my reaction times, impaired judgment and put me at risk of making bad decisions.
+
+What do I do?
+[open](https://x.com/bryan_johnson/status/1971576711126081742)
+
+---
+
+Top image: a normal night. Nearly zero sleep stress and high quality sleep. 
+
+Bottom image: last night. High stress and chaotic sleep.
+[open](https://x.com/bryan_johnson/status/1971593099387535419)
+
+---
+
+Going from sea level to high altitude, drops oxygen, elevates heart rate, reduces sleep.
+[open](https://x.com/bryan_johnson/status/1971577043948311022)
+
+---
+
+Have we gone too far? 
+
+Sparkling protein with a splash of sucralose for microbiome damage and insulin resistance.
+[open](https://x.com/bryan_johnson/status/1971379477214265652)
+
+---
+
+You might think that muscles are important for longevity but actually strength is the real predictor of lifespan.
+
+As we age strength declines 3x faster than muscle mass. Faster decline has been shown to predict sooner death.
+
+Strength losses are irreversible in old age but
+[open](https://x.com/bryan_johnson/status/1971291613969236273)
+
+---
+
+In my 20s, with a few young kids and building a start up, my sleep was total chaos. My sleep stress was so intense that I'd do wild and dangerous things at night. 
+
+I'd dream that one of my children was in bed with me and I was accidentally smothering them so I'd jump up and
+[open](https://x.com/bryan_johnson/status/1971206518533161126)
+
+---
+
+Can ecstasy save a relationship?
+
+This study showed it boosted cooperation, trust, bliss, and insight.
+
+100 mg of MDMA (ecstasy) given to 20 men in a placebo controlled, cross-over trial showed:
++ 100% increase in cooperation with trustworthy partners
++ MDMA helped participants
+[open](https://x.com/bryan_johnson/status/1970962996689240467)
 
 ---
 
 No content found
-[open](https://x.com/bryan_johnson/status/1968411772110446953)
+[open](https://x.com/bryan_johnson/status/1971043555893502387)
 
 ---
 
-French fries are linked to type 2 diabetes.
-
-Cutting out 3 servings a week lowers your risk by 19%.
-
-3 key findings:
-
-1. Each additional 3 weekly servings (4-6 ounces per serving) of fries were linked to a 20% increased risk of type 2 diabetes.
-
-2. General potato consumption had
-[open](https://x.com/bryan_johnson/status/1968362346583351648)
+How did @OnlyMurdersHulu find out about my stable of teen plasma donors
+[open](https://x.com/bryan_johnson/status/1971029134252839237)
 
 ---
 
-You probably shouldn’t order that side of fries.
+owning a dog lowers your risk of death by 24%
 
-A study with 200,000+ participants revealed a significant correlation between french fry consumption and an increased risk of type 2 diabetes.
-
-Study limitations:
-
-90% of participants were white health professionals, suggesting a
-[open](https://x.com/bryan_johnson/status/1968362679686545567)
+so i got 12
+[open](https://x.com/bryan_johnson/status/1970900430541684860)
 
 ---
 
-we sold out immediately. this is back in stock
-[open](https://x.com/bryan_johnson/status/1968093841019609438)
+No content found
+[open](https://x.com/bryan_johnson/status/1970655422169141393)
 
 ---
 
-master these five habits
-[open](https://x.com/bryan_johnson/status/1968045055899496783)
+things ppl will do before going to bed on time:
+
+NAD drips
+exotic peptides
+cold plunge
+five day fasts 
+umbilical stem cells just south of the border
+[open](https://x.com/bryan_johnson/status/1970558668723925273)
 
 ---
 
-what i'm eating this week
-[open](https://x.com/bryan_johnson/status/1968001720287629714)
+“I wonder why i never get quality sleep”
+[open](https://x.com/bryan_johnson/status/1970309391657136410)
 
 ---
 
-Irregular sleep is just as bad as getting less sleep.
-
-Both are linked to the risk of 172 diseases.
-42 showed more than doubled risk with bad sleep.
-
-Almost half of these diseases were associated with irregular sleep.
-
-Things like inconsistent bed times, late sleep hours, and
-[open](https://x.com/bryan_johnson/status/1967766619222053294)
+we both have beef
+[open](https://x.com/bryan_johnson/status/1970228948228546665)
 
 ---
 
-0/ The study:
-88,461 adults with both wearable and self-reported sleep data were studied over an average 6.8-year follow-up.
-
-The goal was to reassess sleep-related disease risks and identify the sleep parameters driving the risk.
-
-The study analyzed circadian rhythm consistency
-[open](https://x.com/bryan_johnson/status/1967766621159821507)
+@ChipotleTweets my guac isn't extra
+[open](https://x.com/bryan_johnson/status/1970234737013989652)
 
 ---
 
-1/ This shows wearable data is useful for accurately defining sleep parameters and disease risk, correcting previous misconceptions from self-reported data that often overemphasize sleep duration while neglecting other vital parameters such as bedtime and consistency.
-[open](https://x.com/bryan_johnson/status/1967766623374454862)
+If you're depressed or anxious, do this: 
+0. asleep at the same time every day 
+1. final meal/snack 4 hrs before bed 
+2. screens off 60 before bed 
+3. eliminate all processed sugars 
+4. exercise every day
+[open](https://x.com/bryan_johnson/status/1970180520450629751)
 
 ---
 
-You might not want to live forever, but maybe your dog does
-[open](https://x.com/bryan_johnson/status/1967704022472949878)
+Fights only happen when other relationship systems have failed.  
+
+Over time, too many fights create excessive scar tissue, leaving a gnarled mess.
+[open](https://x.com/bryan_johnson/status/1969784565603745949)
 
 ---
 
-I might have to try shrooms (for science).
-[open](https://x.com/bryan_johnson/status/1967656981038240011)
+TV before bed wrecked my sleep. 
+
+I ran an experiment: 60 min of a 77″ screen, 9 m away, 35% brightness.
+
+Photon exposure: ~3.9 × 10^15
+Blue-blocking glasses: ~1.7 × 10^15 (55% reduction)
+
+No screen last night, sleep was dramatically better.
+[open](https://x.com/bryan_johnson/status/1969480309860417893)
 
 ---
 
-Do you think it’s possible that the stacked technologies of addiction* have simply overwhelmed the human race? 
-
- *social, devices, junk food, porn, substances, gambling…
-[open](https://x.com/bryan_johnson/status/1967378649902109152)
+*3 meters away, not 9
+[open](https://x.com/bryan_johnson/status/1969513981879656705)
 
 ---
 
-Had my 30 year high school reunion last night. These sort of events have a way of inviting unique sobriety of observation. 
-
-First, the vast majority of everyone there had left the Mormon church. This is very surprising given the deeply religious adherence of our small 30,000
-[open](https://x.com/bryan_johnson/status/1967350392377020599)
+Don't Die right now is the world's largest ideology.
+[open](https://x.com/bryan_johnson/status/1969486892526981330)
 
 ---
 
-Sleep is the world’s best will power drug. 
-
-Will power enables you to be what you want to become.
-[open](https://x.com/bryan_johnson/status/1966937829935907205)
+Started this book today. What are you reading?
+[open](https://x.com/bryan_johnson/status/1969449726698557448)
 
 ---
 
-Imagine someone has never experienced anxiety. 
-
-How would you explain it?
-[open](https://x.com/bryan_johnson/status/1966911120146612407)
+Fertility is down 50% in the past 50 years.
+What’s the solution?
+[open](https://x.com/bryan_johnson/status/1969221724886442314)
 
 ---
 
-We’ve built politics on hate.
-Media on outrage. 
-Social media on spectacle. 
-Technology on addiction.
-Food on poison. 
-Culture on martyrdom. 
+“I’ll sleep when I'm dead” daily routine
 
-We ingest it non-stop. 
-It’s now our biology. 
-We’re inmates in our own asylum.
-We’re sleep deprived drunk. 
++ wake up from power nap
++ snooze alarm 4th time
++ doom scroll
++ coffee for breakfast
++ go to work
++ brag about your late bedtime
++ energy drink
++ dry eye twitches
++ overshare in meetings like you’re drunk
++ stomach ache from too much
+[open](https://x.com/bryan_johnson/status/1969156927981830499)
 
-At the moment we’re giving
-[open](https://x.com/bryan_johnson/status/1966563844702232614)
+---
+
+The weekend is for debauchery. 
+
+This is a bad idea that took hold in culture. 
+It’s a terrible thing to have in your life. 
+Leaves you feeling fatigued and mood distraught. 
+
+It’s an understandable reaction to the world. 
+Our food makes us feel terrible. 
+We’re on 24/7. 
+Never
+[open](https://x.com/bryan_johnson/status/1969122522936590667)
 
 ---
 
@@ -5500,15 +6502,88 @@ At the moment we’re giving
 
 # naval
 
-"Individuals rarely admit mistakes. Groups never do."
+When you take art and divorce it from the artist (AI art), all that's left is bland sensation. It is, like @naval days, meaningless. 
 
-@naval
-[open](https://x.com/NavalismHQ/status/1967840121740529700)
+It's similar with life. Without God all we have is sensation. It results in nihilism or hedonism.
+[open](https://x.com/DeclineTheWest/status/1971990254753358287)
 
 ---
 
-Marxism is religion without God.
-[open](https://x.com/naval/status/1966891026733494607)
+To understand human nature, read the older books. To develop specific knowledge, stay on the bleeding edge, read newer (technical) books.
+
+The best authors - Deutsch, Schopenhauer, Borges, Ted Chiang - write with very high density. The best authors respect the reader’s time.
+[open](https://x.com/naval/status/1972484269567275487)
+
+---
+
+http://nav.al/density
+
+Nivi: Unlike Schopenhauer, you are an industrial philosopher. Like an industrial designer, your philosophy is designed for the masses. People suggest you read the great books—Aristotle and Wittgenstein and all the supposedly great philosophers.
+
+I’ve read
+[open](https://x.com/naval/status/1972484273530900508)
+
+---
+
+AI is intelligent to the extent it can get you what you want.
+
+AGI is intelligent to the extent it can get itself what it wants.
+[open](https://x.com/naval/status/1971812043092283628)
+
+---
+
+Creation without a creator is meaningless.
+[open](https://x.com/naval/status/1971808219136942534)
+
+---
+
+Feedback from other people is fake. Awards are fake. Critics are fake.
+
+Real feedback comes from free markets and nature. 
+
+Did your rocket launch?
+
+Did your drone fly?
+
+It’s impossible to fool Mother Nature.
+[open](https://x.com/naval/status/1971711729978765553)
+
+---
+
+https://nav.al/fool
+
+Naval: You have to take responsibility for everything bad that happens to you—and this is a mindset.
+
+Maybe it’s a little fake, but it’s very self-serving. And in fact, if you can go the extra mile and just attribute everything good that happens to you to
+[open](https://x.com/naval/status/1971711734659575836)
+
+---
+
+Feedback from other people is usually fake. Awards are fake. Critics are fake. Kudos from your friends and family are fake. They might try to be genuine, but it’s lost in such a sea of fakeness that you’re not going to get real feedback.
+
+Real feedback comes from free markets and
+[open](https://x.com/naval/status/1971711738304450914)
+
+---
+
+It’s hard to find conviction, but you deserve nothing less.
+[open](https://x.com/naval/status/1971091690296676612)
+
+---
+
+One day a student moved to SF. He went to his Master and asked, "Teacher, I am new here and understand that SF is a city of many freedoms. What musnt I do?"
+
+The teacher replied simply: "everything is permitted"
+
+Hearing this, the student went into the city.
+
+Growing weary from
+[open](https://x.com/VivaLaPanda/status/1969978712520380903)
+
+---
+
+New iPhones need new capabilities, not new specs.
+[open](https://x.com/naval/status/1969922817488794088)
 
 ---
 
@@ -5516,313 +6591,440 @@ Marxism is religion without God.
 
 # paulg
 
-[Thread] 
+Yet more evidence that a pretty major shift is happening, this time by Scott Aaronson 
 
-3 of the 6 largest VPN companies are owned and operated by an Israeli company, founded and led by "former" Israeli spies?
-
-Is your VPN affected? My investigation reveals all:
-[open](https://x.com/AlanRMacLeod/status/1968732662954074336)
+https://scottaaronson.blog/?p=9183&fbclid=Iwb21leANGXI1leHRuA2FlbQIxMQABHhhc-brYxsroE9QSWVS64u9EhPyULyGu340pc2Kz390HXvqRiIqT5z97eovH_aem_u5H_DiLrxt3onieDqzm7cw…
+[open](https://x.com/SebastienBubeck/status/1972368891239375078)
 
 ---
 
-In 1934, Germany passed a law making it a crime to tell jokes or laugh at its leaders.
+Here is another incredible GPT-5 Pro example that is well above biomedical PhD level and how it advances science: 
 
-We can’t go down that road. Because what’s next is you can’t post what you want on social media.  And you can’t text your friends anything that might upset the government.
-
-That’s not the way
-[open](https://x.com/RepSwalwell/status/1968788168863531113)
+I was reviewing some of our old data and noticed an email from one of my PhD students sent more than eight years ago, outlining a highly complex immune cell
+[open](https://x.com/DeryaTR_/status/1972115494787338484)
 
 ---
 
-I've often thought it would help defang antifa if we cracked down on wearing masks in public. But this rule should apply to fa as well.
-[open](https://x.com/paulg/status/1969012937823076811)
+me and my mini me
+[open](https://x.com/jokull/status/1972567594487226478)
 
 ---
 
-Here is our assessment of Russia’s combined refining outages since mid-August: if Ukraine sustains its strike tempo (and all signs point that way), Russia is unlikely to fall back below 30% outages over the next 3–6 months..
-[open](https://x.com/konrad_muzyka/status/1968983769773212089)
+How is this not bigger news in tech/security circles.
+
+Jaguar Land Lover lost $250M (£200M) and counting thanks to a cyberattack that it still couldn’t mitigate. This is growing every week.
+
+The cost of underinvesting in security is very real. 1+ month recovery is bonkers
+[open](https://x.com/GergelyOrosz/status/1972241099126444397)
 
 ---
 
-I do. He'd only get $2t if Tesla is very much ahead on the deal.
-
-The reason this number seems surprising is that it's surprising that one man could have so much effect. But one man can. Look at what Steve Jobs did for Apple.
-[open](https://x.com/paulg/status/1969007878590611694)
+The massive cyclopean mortarless retaining wall at the hill of Pnyx in Athens
+[open](https://x.com/greece_heritage/status/1971964812742873225)
 
 ---
 
-Also, don't you *want* him to be focused on Tesla, instead of politics? I know I do.
-[open](https://x.com/paulg/status/1969009339160461462)
+URGENT: This 16-year-old AMERICAN BOY has been held in an adult male Israeli prison for the last 7 months, WITHOUT due process. 
+
+This child's name is Mohammed lbrahim, he is a third-generation AMERICAN CITIZEN from Tampa, Florida. At the time of his arrest, he was traveling
+[open](https://x.com/goddeketal/status/1972058926645473355)
 
 ---
 
-"But we don't know if it's going to work yet."
-
-— British founder after I offered to invest more in her startup
-
-(I explained that funding things you don't know are going to work is what seed investing consists of.)
-[open](https://x.com/paulg/status/1969006114470601130)
+I've been making a word list to help 16 yo prepare for the SATs. As a challenge I've been writing the definitions myself, using as few words as possible. This is sometimes quite hard. How do you define cadence, for example? I said "rate of rhythm."
+[open](https://x.com/paulg/status/1972286099574972654)
 
 ---
 
-A famous study found that Black babies have higher survival rates if attended by Black than White doctors. But a re-analysis of the data shows the effect disappears after accounting for the fact that low birth weight babies more often see White doctors.
+In a UN speech today, President Trump said that "all of these [climate] predictions were wrong".
 
-[Link below.]
-[open](https://x.com/SteveStuWill/status/1968789875865346488)
-
----
-
-Cancel culture is terrible. I have opposed it publicly for more than a decade. It is even more chilling, and more clearly a violation of the First Amendment, when it is the government doing the intimidation.
-[open](https://x.com/JonHaidt/status/1968849651924164676)
+Back in 2019 I led a research effort to digitize old climate model projections and assess how well they did. Turns out they got future warming pretty spot on!
+[open](https://x.com/hausfath/status/1970534038466170889)
 
 ---
 
-There is a lot about Euclid’s Elements that is easily misunderstood. Some proofs seem to have logical gaps. Some constructions seem pointless, others seem needlessly convoluted.
-
-Each of these provides a window into how the ancient Greeks thought about math and the philosophical
-[open](https://x.com/3blue1brown/status/1968682424512168037)
+The Anglo-Saxon Chronicle records a great sea-flood #OTD in 1014, the tide ‘reaching inland further than ever before, submerging many homesteads and drowning many people’. It may have been a tsunami caused by an asteroid strike. Dave Fergusson
+[open](https://x.com/NorthAges/status/1972191768046371059)
 
 ---
 
-AI coding agents offer the best glimpse into what the future of agents will look like in many other fields of knowledge work.
-
-AI coding has accelerated faster than any other AI space because the builders of AI understand their own workflows deeply, and they’re incentivized to
-[open](https://x.com/levie/status/1968883364469129316)
+The man behind the digital ID push is Larry Ellison, owner of Oracle, CBS, CNN, and, soon, TikTok. He wants data centralization and total surveillance. "Citizens will be on their best behavior because we're constantly watching & recording everything that's going on." Terrifying.
+[open](https://x.com/shellenberger/status/1971960403082236027)
 
 ---
 
-Since Inauguration Day, the Dollar has lost -13% of its value.
-[open](https://x.com/SpencerHakimian/status/1968891509580722400)
+Over the past week, @arcinstitute published three new discoveries that I’m very proud of.
+
+• The world's first functional AI-generated genomes. Using Evo 2 (the largest biology ML model ever trained, which Arc released in partnership with @nvidia in February), Arc scientists
+[open](https://x.com/patrickc/status/1971362920350248977)
 
 ---
 
-TIL the lambda in lambda calculus was a typesetting hack
-[open](https://x.com/khoiiiind/status/1968685705208476047)
+BREAKING :Four Palestinians killed, including a child, and several injured after the Israeli army targeted an animal-drawn cart carrying displaced families at Al-Abbas junction west of Gaza, heading south as instructed by the army.
+[open](https://x.com/gazanotice/status/1971974353525801178)
 
 ---
 
-“I was going to give you biscuits, my love.”  
-
-A Palestinian mother in Gaza mourns the killing of her daughter by an Israeli air strike while holding onto the child’s hair tie.
-[open](https://x.com/aldamu_jo/status/1968346104229212181)
+The greater the extremes they go to in order to block the release of the Epstein files, the more it seems there must be really bad stuff about Trump in there.
+[open](https://x.com/paulg/status/1971937279427088721)
 
 ---
 
-This is the strongest evidence I've seen so far that Trump is in fact in the Epstein files.
-[open](https://x.com/paulg/status/1968585804357292371)
+NEW - Netanyahu mission-briefed American influencers today, stating TikTok is the "most important" weapon in securing Israel's right-wing support: "Weapons change over time... the most important ones are the social media," he said. "The most important purchase that is going on
+[open](https://x.com/disclosetv/status/1971757331928023134)
 
 ---
 
-I don’t particularly like Kimmel, but I think it’s extremely disturbing that the FCC made ABC cancel the show over this clip. 
-
-It’d be fine if ABC cancelled it on their own, but feels like the government is now regulating speech
-[open](https://x.com/pitdesi/status/1968505760914329749)
+This is a fucking disaster
+[open](https://x.com/nobodyknows2322/status/1971112287839891871)
 
 ---
 
-I express my profound closeness to the Palestinian people in Gaza, who continue to live in fear and to survive in unacceptable conditions, forced once again from their own lands. Before Almighty God, who commanded “Thou shalt not kill,” and throughout human history, every person
-[open](https://x.com/Pontifex/status/1968283807704076535)
+Saying this as recent as two years ago would’ve gotten you dropped by agents, black listed by major studios, etc. Overton window has shifted enough to where whitebread mainstream actors can now say it.
+[open](https://x.com/ZaidJilani/status/1971587467703988711)
 
 ---
 
-My favorite pub in my favorite town in Britain, the Blue Boar in Hay.
-[open](https://x.com/paulg/status/1968396037715816729)
+You know it's serious when he uses uppercase letters.
+[open](https://x.com/paulg/status/1971652975480500264)
 
 ---
 
-A shaggy patron who arrived just after I took that.
-[open](https://x.com/paulg/status/1968396345607131302)
+brian chesky talk (ceo & founder @airbnb) for ycombinator kickoff 
+
+bro was so inspirational he held my attention span (which is cooked by valorant) for 2 hours
+
+yc day 2 ends with a bang 
+[open](https://x.com/jparkjmc/status/1971403864625832300)
 
 ---
 
-I'd like to add something else to this list:
+after 7 applications and 6 rejections, today is day 1 of @ycombinator 
 
-Immunotherapy.
-
-People are just slapping it on cancer treatment regimens and watching their patients survive at unprecedented rates.
-
-Consider Philadelphia-positive leukemia: once a death sentence, now few people die from it.
-[open](https://x.com/cremieuxrecueil/status/1968153751656509664)
+time to build
+[open](https://x.com/conor_ai/status/1971286789349671347)
 
 ---
 
-The latest batch of Trump approval rating polls are out. 
-
-9 months in, he is the most unpopular president in modern American history. 
-
-The 2nd most unpopular was also Donald Trump.
-[open](https://x.com/SpencerHakimian/status/1968085200497528867)
+“A million-year-old human skull suggests that the origins of modern humans may reach back far deeper in time than previously thought and raises the possibility that Homo sapiens first emerged outside of Africa.”
+[open](https://x.com/SteveStuWill/status/1971564672806707405)
 
 ---
 
-The killing of Charlie Kirk is part of a grim pattern of political violence in America. This is what the data show http://econ.st/4gwVO6Y
-[open](https://x.com/TheEconomist/status/1967966886320050373)
+The King endured decades of mockery and vitriol for building a mixed use, walkable, vernacular urban quarter at Poundbury. Now the Government says that Poundbury will be the model for next generation of new towns. Quite a vindication!
+[open](https://x.com/SCP_Hughes/status/1971602992790192262)
 
 ---
 
-For nearly two decades, Box co-founder and CEO Aaron Levie (@levie) has been at the frontlines of how technology reshapes work—guiding the company through the rise of mobile, the cloud, and now the age of AI.
-
-In his fireside with YC's @dflieb at AI Startup School, Aaron reflects
-[open](https://x.com/ycombinator/status/1967952300397437440)
+I just bought this amazing painting by Craig Simpson. That's him on the right, in the distinctive jumper.
+[open](https://x.com/paulg/status/1971626295986737495)
 
 ---
 
-“Hate speech” is a term used by those in power to describe thoughts they don’t want spoken. It’s antithetical to the First Amendment.
-[open](https://x.com/RepThomasMassie/status/1967946533770551390)
+Never been more pleased at winning a bet.
+[open](https://x.com/AliceFromQueens/status/1971404021673165214)
 
 ---
 
-Very pleased to find I've forgotten the Decameron well enough to reread it.
-[open](https://x.com/paulg/status/1968034548341735931)
+Microsoft announced it is blocking Israel’s access to technology which allowed the mass surveillance of Palestinian civilians, following an investigation we wrote. The first time that a major US tech company sanctions the Israeli military for violating Palestinian rights >
+[open](https://x.com/yuval_abraham/status/1971232369450627458)
 
 ---
 
-BREAKING: Israel is committing genocide in Gaza, a team of independent experts commissioned by the U.N.’s Human Rights Council concludes.
-[open](https://x.com/AP/status/1967856060800098332)
+TikTok US selling for <1x revenue…
+
+Maybe I’m missing something but this reminds me of the oligarchs in Russia, license raj in India, privatization in Mexico etc…
+
+being close to political power lets folks buy up crown-jewel assets at a fraction of their true value.
+[open](https://x.com/pitdesi/status/1971437796159259078)
 
 ---
 
-This wasn’t true when leftists said it and it’s still not true now that MAGA is saying it — free speech includes the right to say rude, hateful, disgusting and inappropriate stuff.
-[open](https://x.com/mattyglesias/status/1967758799793701058)
+Wonderful news.. first Norway and now Denmark.. 
+
+Hope this list keeps growing 
+[open](https://x.com/abierkhatib/status/1971287747597148216)
 
 ---
 
-This is not what “self-defense” looks like.
-[open](https://x.com/AssalRad/status/1967823043557986572)
+Today in @ScienceMagazine, we report a new DNA editing technology to seamlessly write massive changes into the right place in the human genome.
+
+The reason gene editing hasn't transformed human health is that current gene editing technologies like CRISPR are very limited.
+
+The
+[open](https://x.com/pdhsu/status/1971293821418995988)
 
 ---
 
-OpenAI literally just leaked what people use ChatGPT for
-[open](https://x.com/basicprompts/status/1967631474775167412)
+Easily one of the most consequential yet over-looked events of 2025:
+
+Larry Ellison -- the mega-billionaire Oracle founder and the IDF's largest private donor -- is now taking control of CBS, Paramount, TikTok, and likely CNN.
+
+He won't just control content but also user data.
+[open](https://x.com/ggreenwald/status/1971250557856907639)
 
 ---
 
-One thing that I learned after managing consumer products: never let a single crazy person upset you.
+Introducing Early Decision.
 
-This lesson is probably useful in life generally.
-[open](https://x.com/nikitabier/status/1967852534686773644)
+For students who want to do a startup but also want to finish school first. Apply now, get funded the moment you're accepted, and do YC after you graduate.
 
----
-
-I used to get so much grief back in the day for telling SJWs trying to cancel people that this was a mistake — that one day the country could shift rightward and then they'd be the ones getting cancelled. And now it's happening.
-[open](https://x.com/paulg/status/1967734744617304501)
+https://ycombinator.com/early-decision
+[open](https://x.com/ycombinator/status/1970902199036514488)
 
 ---
 
-Breaking: Britain will bar all Israelis – civilian and military – from enrolling at the prestigious Royal College of Defense Studies starting next year, the first such ban in the school’s near-100-year history. The UK Ministry of Defense said the step follows Israel’s escalating
-[open](https://x.com/DropSiteNews/status/1967346856611979363)
+This new painting by @richardmcj just arrived, and it's even better in person. It's so cool the way the left third is a mid-century modern abstract painting (even the colors), and the rest looks like it was painted in California this summer.
+[open](https://x.com/paulg/status/1970914546215944275)
 
 ---
 
-What if we could manipulate biology as quickly and easily as we do software?
-
-That is the bet @pdhsu and @arcinstitute are making.
-
-Science is slow because biology is the most complex system we study and because we do not natively speak its language (DNA). Those constraints are
-[open](https://x.com/JorgeCondeBio/status/1967602192728338779)
+Do Dems even realize how much the country hates their ideas?
+[open](https://x.com/Noahpinion/status/1970745564611650030)
 
 ---
 
-We will have the 218th vote to release the Epstein Files later this month once the winner of the AZ-07 special is sworn in.
-
-But one more Republican can show great courage right now and commit to signing. That person would be a hero in history.
-[open](https://x.com/RoKhanna/status/1967637042650857929)
+I'm doing my second Social Radars episode with Jessica and Carolynn this afternoon. Anything you want me to talk about?
+[open](https://x.com/paulg/status/1970799184849641841)
 
 ---
 
-Just mind-blowing...
+I always enjoy @destraynor’s no-nonsense insights. He and I discuss growing @Fin_ai to $50 million revenue run rate, his “four horseman” rubric for investing in AI companies, advice for product marketers, and why you shouldn’t split the G.
 
-Here I am at my desk, 9:56 on a Monday morning about to start writing about football.
-
-Whilst less than a 5 hour flight away, people are having their lives ruined every minute of every day.
-
-It's got to end. 
-[open](https://x.com/DougieCritchley/status/1967512894465335721)
+Subscribe on Spotify, Apple Podcasts,
+[open](https://x.com/collision/status/1970783012813160569)
 
 ---
 
-Slacker Index: Why Vertical Integration is Critical for Rapid Hardware Development
-[open](https://x.com/bscholl/status/1967212772674215942)
+In the latest Social Radars we talk to @eshear about how he ran Twitch, and in particular why he spent three hours every week preparing for the all-hands.
+[open](https://x.com/jesslivingston/status/1970554174191374527)
 
 ---
 
-Live in the future, then build what's missing
-[open](https://x.com/ycombinator/status/1967249874551963775)
+We have measured support for partisan murder for the last 3 years.  Following Kirk's assassination support dropped to ~*1%* from around 3% in the weeks before. True for Democrats, Republicans and even MAGA Republicans.  Americans reject political violence.
+[open](https://x.com/seanjwestwood/status/1970531261207978371)
 
 ---
 
-"If you’re seeing a high number of gunshot wounds to the chest area and the head, that’s not collateral damage — that’s deliberate targeting."
-[open](https://x.com/paulg/status/1967122528868204739)
+.@ycombinator and @base want to support founders that are building entirely new financial systems onchain.
+
+If you're building the future of finance, we want to hear from you.
+[open](https://x.com/brian_armstrong/status/1970506882730336696)
 
 ---
 
-We have 217 signatures on the discharge petition to force a vote on legislation to release the Epstein files.
-
-We need 218.
-
-Will the 218th (final) signature be a Republican or a Democrat?
-
-It’s time for every Congressmen to support transparency and justice for the victims.
-[open](https://x.com/RepThomasMassie/status/1967044436950741451)
+My take on whether Tylenol causes autism is why is the government refusing to release the Epstein files? Who are they protecting?
+[open](https://x.com/paulg/status/1970480766514503709)
 
 ---
 
-The Great Firewall of China (GFW) today experienced the largest internal document leak in its history. More than 500GB of source code, work logs, and internal communications have been exposed, revealing details about the development and operation of the GFW.
-
-The leak originated
-[open](https://x.com/gfw_report/status/1966669581302309018)
+If you make your app 10% easier to use you'll get twice as many users.
+[open](https://x.com/paulg/status/1970422069151355163)
 
 ---
 
-When a political figure is killed, his supporters want to believe he was killed by some powerful, organized "them." They want his death to be meaningful, and it's more meaningful to be killed by a powerful political force than a random nut, as most actual killers turn out to be.
-[open](https://x.com/paulg/status/1967088969986044238)
+Europe might finally scrap the cookie banners they foisted on the entire world
+
+Trillions of wasted clicks and they actually make us LESS safe. Killing the dumb regulation would be a huge online quality-of-life upgrade.
+[open](https://x.com/pitdesi/status/1970227312114184204)
 
 ---
 
-In 2023, I listened to a YC talk at HackMIT and decided to submit an application.
-
-Yesterday, we returned to MIT to give that same talk with YC.
-
-Crazy to come full circle.
-[open](https://x.com/karunkaushik_/status/1966889454750347406)
+The answer is always this map.
+[open](https://x.com/TerribleMaps/status/1970097897753739722)
 
 ---
 
-Brought 50 pairs of smart glasses to HackMIT
-
-What you gonna build?
-[open](https://x.com/caydengineer/status/1966876011997618265)
+I declare that today, France recognizes the State of Palestine.
+[open](https://x.com/EmmanuelMacron/status/1970237707336192210)
 
 ---
 
-A classic critique of breakout companies is:
-“X is just for startups.”
+Coding is the best possible domain for AI agents to initially take off in. 
 
-I heard it at Stripe.
-I heard it at Notion.
+1. The very builders of the systems know the workflows so they can improve the tech faster. And they have a huge incentive to make their tools better to create a perpetual flywheel.
 
-It’s a way for critics (and competitors) to take a swipe without offering a real critique of substance. Startups are often the earliest adopters. They move fast,
-[open](https://x.com/cjc/status/1966593311772471648)
+2. The limited
+[open](https://x.com/levie/status/1970316300712063422)
 
 ---
 
-Gwen Raverat's Period Piece is startlingly good, maybe the best book I've read this year.
-[open](https://x.com/paulg/status/1966816161863000385)
+The HHS claims to have explained the autism epidemic.
+
+Their answer? Folic acid and Tylenol.
+
+Their answer is wrong, their evidence is bad, and they're avoiding actually ending the autism epidemic.
+
+My latest article is linked below.
+[open](https://x.com/cremieuxrecueil/status/1970286012380143721)
 
 ---
 
-But DM Parker Conrad first.
-[open](https://x.com/paulg/status/1966781982982951030)
+If you want to feel hopeful about the future, this is a great account to follow.
+[open](https://x.com/paulg/status/1970142824898408879)
 
 ---
 
-Never looked at this chart before. UMich Consumer Sentiment among ages 18-34 vs overall Consumer Sentiment. When it's green, it means younger people are more optimistic than the the general public.  In 30 years, we've never seen this sustained relative gloominess among the young.
-[open](https://x.com/TheStalwart/status/1966543855106318774)
+“About a third of high school seniors basically can’t read prose text at all. They can (I hope) read signs and labels in stores and iMessage each other, but they cannot read a passage of text and understand what it’s saying.“ ⁦@mattyglesias⁩
+[open](https://x.com/nfergus/status/1970092243412296189)
 
 ---
 
-If I were starting an ML startup now, I would do YC just to get to work with @GuptaAnkitV.
-[open](https://x.com/snowmaker/status/1966545218771263536)
+A recent reflection, based on conversations with economists and policy leaders, is that there are two superficially similar but importantly different perspectives one can hold with respect to US manufacturing:
+
+* Affinity for manufacturing and physical production is an
+[open](https://x.com/patrickc/status/1969826678307496356)
+
+---
+
+Twitter/X survived because of H-1B engineers, mostly from India & China. They stayed after the acquisition, worked long hours and solved brutally complex problems alongside American colleagues. When posting anti-immigrant takes, remember: they’re the reason you can tweet at all.
+[open](https://x.com/esthercrawford/status/1969833079725559944)
+
+---
+
+Jessica just cancelled our Disney+ subscription because of the shameful way they caved to the Trump administration over Jimmy Kimmel. This is a way to be heard, and save money too.
+[open](https://x.com/paulg/status/1969814384944804186)
+
+---
+
+I'd like to say something to my fellow conservatives. It's something that I hope will speak to old-school liberals as well.
+
+We must be people of principle--unwaveringly so. We must be so most fundamentally because it is right. It is morally required. And we are not relieved of
+[open](https://x.com/McCormickProf/status/1969769459893101026)
+
+---
+
+Australian doctor in Gaza:
+
+"The bombing is ongoing, and every half an hour to an hour we have another mass casualty that arrives in huge numbers because the whole building is destroyed on top of patients."
+[open](https://x.com/paulg/status/1969674065322656109)
+
+---
+
+Hitler – Mein Kampf (1925):
+
+“The first and most important task of education is to teach the youth to love their own nation and country, and to subordinate everything else to this.”
+
+Stalin – Speech to the Komsomol (1935):
+
+“Young people must be brought up to love with all their
+[open](https://x.com/splendid_pete/status/1969440606209380389)
+
+---
+
+It makes perfect sense that the CCP’s spyware gets acquired by America’s biggest surveillance enjoyer.
+[open](https://x.com/amasad/status/1969437387265589605)
+
+---
+
+Border Czar Tom Homan was caught by the FBI accepting bribes - on camera - to deliver government contracts in exchange for $50,000 in cash.
+
+Pam Bondi knew.
+
+Kash Patel knew.
+
+Emil Bove knew.
+
+And they made the investigation go away.
+
+A corrupt attempt to conceal brazen graft.
+[open](https://x.com/SenAdamSchiff/status/1969508887641391584)
+
+---
+
+I told Director Kash Patel that the FBI has names of 20 men to whom Jeffrey Epstein trafficked women and girls. This basic fact seemed to surprise him. Why? 
+
+Is the FBI withholding those names to protect the President's rich and powerful friends? Release the Epstein files.
+[open](https://x.com/RepThomasMassie/status/1969507314991259696)
+
+---
+
+It would be really funny were it not so depressing when nativists use Bell Labs, Manhattan Project, and Moon landing as example of what can be achieved *without* immigrant scientists and researchers. Bell Labs was *literally* founded by an immigrant (Alexander Graham Bell), a
+[open](https://x.com/tunguz/status/1969412155754889626)
+
+---
+
+Homelessness should be reframed into 3 groups.
+
+-Homeless 
+-Drug addicted
+-Mentally ill
+
+Calling the drug and mental health crisis homelessness is misleading.
+
+I say this as a formerly drug addicted person who lived on the street.
+[open](https://x.com/Twolfrecovery/status/1969069201337057722)
+
+---
+
+A few years ago Oxford and Cambridge started discriminating against middle class applicants. They used to base admission offers solely on academic performance. Now they have lower standards for applicants from poor families or bad schools.
+[open](https://x.com/paulg/status/1969334665375813679)
+
+---
+
+As so often happens, the social engineers at Oxford and Cambridge overestimated their power to remake society. They didn't realize that highly motivated people would be able to find ways around their new rules.
+[open](https://x.com/paulg/status/1969336013928452447)
+
+---
+
+In this particular case the result could be disastrous for Britain. Kids worrying that Oxford and Cambridge will discriminate against them are among the smartest in the country. And if they go to university in the US, they're likely to stay there.
+[open](https://x.com/paulg/status/1969337059081859276)
+
+---
+
+I want u to hear these 2 doctors from Australia sending their last words, fully aware they could be killed any second.
+
+What they’re describing is horror that defies belief. 
+70% of their patients are kids…
+[open](https://x.com/abierkhatib/status/1969256625325154617)
+
+---
+
+Talked to a multinational financial firm that built a system to turn customer feedback into prompts, feed them into Replit, and auto-generate platform extensions that solve the customer’s pain.
+
+Closest thing I’ve seen to an autonomous self-improving business! No dev in the loop.
+[open](https://x.com/amasad/status/1969227812423774396)
+
+---
+
+Great quote from Pinker. For more, check out the link below.
+[open](https://x.com/SteveStuWill/status/1969151299183689883)
+
+---
+
+Jessica: What happened to his company?
+
+Me: Venture debt.
+
+Jessica: Oh.
+[open](https://x.com/paulg/status/1969323538453524803)
+
+---
+
+In many domains it's an advantage to have a culture of doing things fast and cheaply. But organizations never shift toward this as they age; if they shift, it's always in the other direction. So the only way to have this culture is to start with it and not lose it.
+[open](https://x.com/paulg/status/1969078875884773469)
+
+---
+
+"Reich now believes Europe, at least, is in a period of accelerated selection that began 5,000 years ago, focusing on immune and metabolic traits."
+[open](https://x.com/paulg/status/1969075462597955627)
+
+---
+
+Source:
+[open](https://x.com/paulg/status/1969075865540530330)
+
+---
+
+One surprising advantage of wokeness, for me at least, was the essays it made me write. This essay was largely a subtweet about wokeness, but that will be lost on future readers. They just get practical advice about avoiding intellectual fashions.
+
+https://paulgraham.com/think.html
+[open](https://x.com/paulg/status/1969036992865349947)
+
+---
+
+"It's important to speak out now, not when this is over. Right now, while it's happening."
+[open](https://x.com/paulg/status/1969033572875932156)
 
 ---
 
@@ -5830,58 +7032,626 @@ If I were starting an ML startup now, I would do YC just to get to work with @Gu
 
 # Mangan150
 
-My top 5 bare minimum health targets:
+After serving nearly 1500 private clients over 10+ years…
 
-Ferritin under 100
-A1C in normal range 
-Normal blood pressure
-Waist to height ratio under .5
-Triglycerides/HDL ratio under 2
+I know how to help people lose excess fat, even the most stubborn...
+
+And get lean and fit in 1 hour per week. 
+
+Text “PD” to 415-569-0150 to explore 1-on-1 coaching with me. 
+
+ https://x.com/Mangan150/status/1939442181326156233/video/1…
+[open](https://x.com/Mangan150/status/1972419026057101578)
+
+---
+
+Today's workout at age 70
+
+leg press
+leg extension
+pulldown
+incline press
+pulldown
+seated row
+overhead press
+dips
+calf raise
+shrugs
+machine curls
+rowing machine (metabolic finisher)
+
+all at one set to failure; total time 30 minutes
+
+sun, steak, and steel
+[open](https://x.com/Mangan150/status/1972649567595409814)
+
+---
+
+I do this or a similar workout once every 4 days, so ~ one hour a week of intense exercise.
+
+Walking or swimming on off-training days.
+
+Eat right.
+
+Boom, you're in shape and in good metabolic health.
+[open](https://x.com/Mangan150/status/1972649569755517247)
+
+---
+
+Cholesterol and dementia:
+
+High total cholesterol levels are associated with up to 80% lower risk of dementia.
+[open](https://x.com/Mangan150/status/1972448206920544701)
+
+---
+
+Persistent organic pollutants accumulate in human pancreas and positively correlate with markers of diabetes risk
+[open](https://x.com/Mangan150/status/1972620825863102904)
+
+---
+
+The #1 problem with “bad” cholesterol obsession is that millions of people with 30% body fat think that, as long as they take their cholesterol lowering drug, their health is under control. 
+
+Let’s be clear: it’s very much not under control.
+[open](https://x.com/Mangan150/status/1972459303673229670)
+
+---
+
+Animal fat, what’s known as saturated fat, which can be found in meat, eggs and dairy is NOT associated with heart disease.
+[open](https://x.com/Mangan150/status/1972449454746915024)
+
+---
+
+Imagine living in a country where every year gets higher rates of infertility, obesity, mental illness, cancers, diabetes, chronic conditions, etc.
+
+And the one person asking why is the villain?
+
+RFK: "I want to try to find the cause and stop autistim!" 
+
+Liberals: "YOU FASCIST!"
+[open](https://x.com/WallStreetMav/status/1972330369132425715)
+
+---
+
+One lesson those of us who’ve dramatically improved our health quickly learn is that, no matter who we recruit to help us along the way, the best results come from being an active participant in the process.
+[open](https://x.com/Mangan150/status/1972337539475525789)
+
+---
+
+When you’re overweight, it’s harder to persuade others to date you, hire you, promote you, buy from you or invest in you.
+[open](https://x.com/Mangan150/status/1972301448806604935)
+
+---
+
+By the way, I’m not advocating for opting out of holidays. 
+
+My comment is about navigating each of them well. 
+
+Because for some people, it seems like there’s a 5-6 week period where it’s total chaos between Thanksgiving and early January.
+[open](https://x.com/Mangan150/status/1972298414286409828)
+
+---
+
+As we are days away from the final quarter of the year, which includes Halloween, Thanksgiving, Christmas and New Year’s Eve, it might be a good idea, for those who care about their health, to take a few moments to plan ahead. Without a plan, it’s very easy to wreck your health.
+[open](https://x.com/Mangan150/status/1972295180943597577)
+
+---
+
+New Report: LDLc of 421 mg/dL for 12 Years on Ketogenic Diet
+
+Atherosclerosis?!?! No sign
+
+This case report is aligned with our 10-year longitudinal data in a high risk CVD setting: https://journals.physiology.org/doi/full/10.1152/ajpcell.00694.2023?journalCode=ajpcell…
+
+This does not mean high LDL-C is "good"...but it does present counter
+[open](https://x.com/AKoutnik/status/1971905167563055417)
+
+---
+
+"Whole-fat dairy was inversely associated with future presence of CAC. These results contradict dietary guidelines that emphasize low-fat dairy intake for the prevention of coronary heart disease."
+[open](https://x.com/ZahcM/status/1972264465556263072)
+
+---
+
+No content found
+[open](https://x.com/Mangan150/status/1972266465916272979)
+
+---
+
+Type 2 diabetes reversal
+
+One week of a 600 calorie/day diet completely normalized blood glucose in type 2 diabetics.
+
+"The abnormalities underlying type 2 diabetes are reversible by reducing dietary energy intake."
+[open](https://x.com/Mangan150/status/1972264593394381091)
+
+---
+
+A lot of people think that they need to give up 4, 7 or even 14 hours of free time each week to get fit. 
+
+But the truth is, if you can carve out 30 minutes, twice a week, you have enough time to make it happen.
+[open](https://x.com/Mangan150/status/1972260559115714708)
+
+---
+
+What do I mean by fit?
+
+I mean that you can get your cardio, stamina and strength way up. 
+
+You can also build muscle. 
+
+No, you won’t be a bodybuilder or an athlete. Very few of us have the genetics for either of those, anyway.
+[open](https://x.com/Mangan150/status/1972262280244101573)
+
+---
+
+I’m talking about getting really fit for a normal working or retired person. 
+
+Someone whose life doesn’t revolve around exercise. 
+
+Someone who wants to look and feel good, and use exercise as a way to get and stay healthy.
+[open](https://x.com/Mangan150/status/1972262282504876484)
+
+---
+
+My @ManganCoaching practice exists to serve men and women 40+, but I’ve had many younger clients who, at the onset, would likely have said that while they’re 24 or 34, they already felt like they were over 40. If you feel your age, but want to feel younger, or if you feel older…
+[open](https://x.com/Mangan150/status/1971968412583952625)
+
+---
+
+Remember how, just yesterday, it was “body acceptance” this, “body positivity” that and of course, the most insane one, “healthy at any size”?
+
+But now that there are drugs they want to sell you…
+
+The people who told you not be “fat phobic” are telling you to get a needle ready.
+[open](https://x.com/Mangan150/status/1971990196179865676)
+
+---
+
+It’s true…..I did it…..worth every penny
+[open](https://x.com/nnzp1730/status/1972024483604320701)
+
+---
+
+"The reduction of skeletal muscle glycogen after exercise allows a healthy storage of carbohydrates after meals and prevents development of type 2 diabetes."
+
+Virtually every article on type 2 diabetes says something like this.
+
+How much simpler could it be?
+
+Exercise and cut
+[open](https://x.com/Mangan150/status/1971978771969511667)
+
+---
+
+Decreasing your glycogen stores is a key to increasing insulin sensitivity and decreasing chronic disease risk, and with aerobic exercise, it may take hours to deplete them.
+
+High-intensity exercise can do that in minutes.
+[open](https://x.com/Mangan150/status/1972014436329361798)
+
+---
+
+Few of us have the genetic potential to be very muscular. But all of us can get lean and fit.
+[open](https://x.com/Mangan150/status/1972014394684198912)
+
+---
+
+People rightly excoriate U.S. dietary guidelines for their role in the diabesity epidemic.
+
+However, there are U.S. exercise guidelines too, and they're not hard to meet.
+
+Hardly anyone follows them.
+[open](https://x.com/Mangan150/status/1971980786497917024)
+
+---
+
+There’s a very high probability that I can help you look, feel and perform better without drugs, and without committing to more than 1 hour of your free time per week to get excellent results. 
+
+Link in bio if curious to learn more and explore working with me 1-on-1.
+[open](https://x.com/Mangan150/status/1971968415314444607)
+
+---
+
+The first manifestation of insulin resistance, ultimately leading to type 2 diabetes, is in skeletal muscle.
+
+Lack of exercise is a main reason.
+
+Exercise vigorously 2-3x a week.
+
+Be physically active, e.g. walking, daily.
+[open](https://x.com/Mangan150/status/1971906524470825017)
+
+---
+
+The truth as I see it is that avoiding type 2 diabetes is so easy that you almost have to actively try to get it.
+[open](https://x.com/Mangan150/status/1971906861168546247)
+
+---
+
+Of course, ditching highly processed junk food, loaded with refined flour, sugar, and seed oils, is a big factor in staying healthy and avoiding diabesity.
+[open](https://x.com/Mangan150/status/1971907357086253467)
+
+---
+
+It was a journey, but not hard. PD gave me simple rules, a lot of help and a lot of education. I was never hungry and I can do this for a long time…….forever.
+[open](https://x.com/nnzp1730/status/1971732352809464139)
+
+---
+
+Digital IDs are bad news. 
+
+-someone old enough to remember when George Orwell’s 1984 was fiction.
+[open](https://x.com/Mangan150/status/1971731355995414616)
+
+---
+
+Where I’ve landed on these drugs so far is that I think they offer a positive risk/benefit profile for those people who have a relationship with food akin to alcoholics or drug addicts. 
+
+For most people, I think it’s unwise to use drugs when there are viable lifestyle fixes.
+[open](https://x.com/Mangan150/status/1971727088076927317)
+
+---
+
+A very happy @ManganCoaching client:
+[open](https://x.com/Mangan150/status/1971723837911060975)
+
+---
+
+No content found
+[open](https://x.com/Mangan150/status/1971723939681652983)
+
+---
+
+One more try.
+Start: Mar 2025, 232.3#
+End; Sep 2025, 182.7#
+56 yo, relaxed stance
+@Mangan150 program
+[open](https://x.com/nnzp1730/status/1971709281671303600)
+
+---
+
+A lot of fitness dreams die over the weekend, sabotaged by choices that, while enjoyable for a few minutes, carry an immense cost in the short term, and an even larger one in the long-term. Don’t make every weekend a “special occasion” if you care about your health!
+[open](https://x.com/Mangan150/status/1971694230696554871)
+
+---
+
+In my view, most cancer cases would have been avoidable.
+
+Here's the data:
+[open](https://x.com/Mangan150/status/1971675038450700800)
+
+---
+
+James did awesome with @ManganCoaching:
+[open](https://x.com/Mangan150/status/1971653308776611987)
+
+---
+
+If you try a few things and they don’t work for you, it might be those things. But if nothing works for you, then it’s 100% on you.
+[open](https://x.com/Mangan150/status/1971625887213973594)
+
+---
+
+You don't need to go looking for cheat foods or cheat meals. They will find you.
+[open](https://x.com/Mangan150/status/1971613363739472188)
+
+---
+
+The idea that if you do, or don’t do, this ONE thing, all your health problems will disappear is seductive. 
+
+I get it. 
+
+But in my experience, that’s not usually what happens. 
+
+Optimal health, most of the time, requires pulling multiple levers, correctly.
+[open](https://x.com/Mangan150/status/1971372750339256779)
+
+---
+
+. @Mangan150  According to my inBody scale,  my weight of 175, Skeletal Muscle Mass of 82.7 lbs, Soft Lean Mass of 141 lbs, and body fat % of 14.5% puts me in the top 1% for men in their 60's.   
+At one point, a decade ago, i was  260 lbs and diabetic.
+[open](https://x.com/RevShark/status/1971576179741311171)
+
+---
+
+If you spend any time at all in the world of self-improvement, you’ll stumble on the concept of mindset. 
+
+My advice on this topic: don’t discount its importance, because it’s way more difficult to achieve anything if you’re holding on to beliefs that limit your potential.
+[open](https://x.com/Mangan150/status/1971575548091527668)
+
+---
+
+In the realm of health and fitness, perhaps the most unproductive false belief is the idea that “it’s too late” to lose weight and get fit past some arbitrary age.
+[open](https://x.com/Mangan150/status/1971577127985361203)
+
+---
+
+The other most common ones I hear is a busy career, the need to travel frequently, and having young kids in the house. 
+
+These are simply constraints, not show stoppers… unless you let them become imaginary reasons to explain why you’re not taking care of your health.
+[open](https://x.com/Mangan150/status/1971577130480975997)
+
+---
+
+The illusion of knowledge is more dangerous than mere ignorance.
+[open](https://x.com/Mangan150/status/1971552913488269320)
+
+---
+
+This is why I find it silly to place someone on a pedestal because they have this or that credential, from this or that institution. 
+
+Being educated doesn’t mean being knowledgeable. 
+
+And in my view, frankly, education is looking more and more like indoctrination.
+[open](https://x.com/Mangan150/status/1971554137751109855)
+
+---
+
+Top 4 metabolic health and body composition levers, in no particular order:
+
+1. Resistance training 
+2. Nutrition optimization 
+3. Cardiovascular training 
+4. Sedentary-busting physical activity 
 
 Here’s why:
-[open](https://x.com/Mangan150/status/1969016614981980377)
+[open](https://x.com/Mangan150/status/1971531774842081782)
 
 ---
 
-A few more things worth paying attention to:
+Physical activity means moving your body, but at a lower intensity than what would qualify as exercise. Obvious example: walking. 
 
-1. Monitoring one's coronary calcium score through a coronary calcium scan (CAC)
+Don’t be sitting all the time!
 
-2. Calculating one's HOMA-IR using fasting glucoserand fasting insulin data
-
-3. Estimating and improving one's VO2Max through intense exercise
-[open](https://x.com/Mangan150/status/1969021700177011147)
+Set a step target if useful (personally, I don’t have one, and most of my clients don’t have one either).
+[open](https://x.com/Mangan150/status/1971531783780065782)
 
 ---
 
-One more thing:
+Ideally, much of your physical activity happens outdoors, weather permitting. 
 
-I didn't include anything about muscle, for simplicity's sake.
-
-That doesn't mean muscle isn't critically important.
-
-I urge the reader to AT LEAST take steps to prevent muscle loss as they get older (and rebuild any muscle that has been lost over the years).
-[open](https://x.com/Mangan150/status/1969023852853285291)
+Sun and fresh air are good for humans.
+[open](https://x.com/Mangan150/status/1971531785780789516)
 
 ---
 
-When this case study was recorded, my client Nikhil said something relatable:
+Resistance training is by far the most predictable way to:
 
-Even though there was enough excess fat to drop nearly 40 pounds in just 4 months...
+1) Protect against muscle and bone loss that would otherwise happen as one ages 
 
-He didn't feel terrible as a baseline.
+2) Build new muscle 
 
-And that's exactly what is so tricky these days: men and women who are at
-[open](https://x.com/Mangan150/status/1968674842401550440)
+New other form of training, no sport or physical activity is anywhere near as effective.
+[open](https://x.com/Mangan150/status/1971531776997933458)
 
 ---
 
-The Pandemic of Fake Psychiatric Diagnoses
+I’m not a carnivore. 
 
-"psychiatric drugs are the third leading cause of death...  psychiatry as a profession does far more harm than good."
+But it’s a fact that the best protein is animal protein, and the best fat is animal fat.
+[open](https://x.com/Mangan150/status/1971365038436086042)
 
- https://brownstone.org/articles/the-pandemic-of-fake-psychiatric-diagnoses/… via @brownstoneinst
-[open](https://x.com/Mangan150/status/1968793007273951325)
+---
+
+In my experience, those who believe they struggle with carbs as a category, in fact struggle with specific foods that contain carbs, but not carbs themselves. 
+
+For example, I basically never see clients struggle with fruit or potato. Not impossible, but it’s very rare.
+[open](https://x.com/Mangan150/status/1971368821710876850)
+
+---
+
+The new National Nutrition Advisor serving in the USDA, is Dr. Ben Carson, and he advocates vegetarianism.
+
+This is not the way to go for MAHA.
+[open](https://x.com/Mangan150/status/1971357246182523118)
+
+---
+
+This message is for you if you want to fix your physical health, eliminate excess body fat and get more energy…
+
+If you want to get lean and fit, and you know deep down, it’s not going to happen without the right plan, and the right accountability and implementation support:
+[open](https://x.com/Mangan150/status/1971288726572769610)
+
+---
+
+In just 4 months, 53 year old David lost 27 pounds, in 1 hour per week. 
+
+Here’s exactly what happened:
+[open](https://x.com/Mangan150/status/1971325528713068897)
+
+---
+
+"We've noticed you liked a post stating there's only 2 genders"
+[open](https://x.com/TRobinsonNewEra/status/1971208313309364443)
+
+---
+
+When a bunch of anti-meat zealots wanted to create a wall of shame (btw, who paid for this seemingly expensive report?), all they got was a hall of fame... 
+
+Meet "la Résistance" & join us; let's expand this list:
+@SBakerMD, @bigfatsurprise, @KenDBerryMD, @fleroy1974,
+[open](https://x.com/fleroy1974/status/1971296562652512304)
+
+---
+
+Submitting an application is only a commitment to explore working together. Not to sign up. That decision remains yours, and worst case scenario, you’ll know it’s not for you, or not the right time.
+[open](https://x.com/Mangan150/status/1971288739931619603)
+
+---
+
+What it’s like to work with me 1-on-1:
+[open](https://x.com/Mangan150/status/1971288930852237438)
+
+---
+
+My @ManganCoaching practice, where I partner 1-on-1 with men and women, offers a 16 week long program. 
+
+Now, depending on how you think about it, the next 16 weeks could be the worst time to start prioritizing your health…
+
+With Halloween, Thanksgiving, Xmas and New Year’s…
+[open](https://x.com/Mangan150/status/1971288729240420472)
+
+---
+
+There’s a segment of the “health Twitter” crowd that first begins to read and learn in an attempt to solve their obesity and obesity related problems, but only ends up becoming more knowledgeable, not healthier. Don’t be this person!
+[open](https://x.com/Mangan150/status/1971273064467055050)
+
+---
+
+I’m sure this is true everywhere. Lots of “wantrepreneurs” and folks who never invest in what they learn and read about. But the tragic thing about learning about health and doing nothing is that the risk is clearly one-sided.
+[open](https://x.com/Mangan150/status/1971273887691440512)
+
+---
+
+No drug or surgery is risk-free.
+[open](https://x.com/Mangan150/status/1970889544729059554)
+
+---
+
+Tylenol overdose is easy and leads to 30-50,000 hospitalizations a year.
+
+https://jeffreydachmd.com/2025/09/overdosing-on-tylenol-while-pregnant…
+[open](https://x.com/Mangan150/status/1971219209867887039)
+
+---
+
+To be clear, the type of weight loss required is fat loss, because excess body fat negatively impacts metabolic health. 
+
+Case in point: millions of people with normal BMI are prediabetic, diabetic or on their way due to poor metabolic health (insulin resistance).
+[open](https://x.com/Mangan150/status/1971197510975881561)
+
+---
+
+Most degrees aren't worth the time, effort, and money, and you can learn all your life on your own.
+[open](https://x.com/Mangan150/status/1971191604716384324)
+
+---
+
+Low dose aspirin and n-acetylcysteine combined markedly inhibited relapse binge drinking in rats.
+[open](https://x.com/Mangan150/status/1971190620841750911)
+
+---
+
+Type 2 diabetes is "an urgent signal that weight loss must be achieved to avoid a progressive decline of health."
+
+Unfortunately, many people and their doctors act as if diabetes was just casual; just pop some pills
+
+Diabetes can be reversed with weight loss
+
+10.1111/joim.13214
+[open](https://x.com/Mangan150/status/1971189607892144169)
+
+---
+
+Around 50% of middle-aged and older US men have metabolic syndrome - basically a pot belly with insulin resistance.
+
+They have at least a 3 x greater risk of cardiovascular disease, and a higher risk of all kinds of cancer.
+
+Don't be among them.
+[open](https://x.com/Mangan150/status/1971172989870964767)
+
+---
+
+Above age 60, half the population has metabolic syndrome, and plenty of younger people have it too. And this was ~10 years ago.
+
+Metabolic syndrome is the very definition of leaving yourself open to acute and chronic disease.
+[open](https://x.com/Mangan150/status/1971173619926794317)
+
+---
+
+You might be able to drive a car with a spare tire, broken brake lights and no odometer for months or even years without anything bad happening to you. But then maybe one day it does. The human body isn’t so different: fix it before it’s too late.
+[open](https://x.com/Mangan150/status/1970915555969478664)
+
+---
+
+The sad reality is that most of the chronic diseases plaguing adults today are self-induced. But the happy flip side is that many of them are reversible.
+[open](https://x.com/Mangan150/status/1971007762873328098)
+
+---
+
+Excess body fat is the most obvious thing in our control, but here I’m thinking about things like type 2 diabetes, many forms of cancer, most cases of heart disease, fatty liver and most kidney issues, to name a few.
+[open](https://x.com/Mangan150/status/1971009737388065126)
+
+---
+
+I should probably say accidentally self-induced since unless one goes out of their way to get quality, accurate information, what the general population is told about human health is, frankly, a disgrace.
+[open](https://x.com/Mangan150/status/1971011860871974982)
+
+---
+
+Some recent feedback from 1-on-1 @ManganCoaching clients:
+[open](https://x.com/Mangan150/status/1970812453366661531)
+
+---
+
+If I had a non-urgent health problem, I would always exhaust every lifestyle lever before considering prescription drugs.
+[open](https://x.com/Mangan150/status/1970845827527757848)
+
+---
+
+Many diseases can be a temporary state. 
+
+Don’t make an illness your personality, and fix it instead.
+[open](https://x.com/Mangan150/status/1970960368458707151)
+
+---
+
+Oh.
+[open](https://x.com/Mangan150/status/1970945840673062980)
+
+---
+
+Congratulations to my friend @Mangan150 for making #7.  If he keeps posting true, useful content, I'm sure he can crack the top 5.
+[open](https://x.com/BradCLemley/status/1970928898423828793)
+
+---
+
+My only regret is that I didn't make it to number 1 on the list of "misinfluencers".
+
+Gotta try harder.
+[open](https://x.com/Mangan150/status/1970920396959645755)
+
+---
+
+Middle-aged men who resistance train have about the same blood flow in their legs as young men.
+
+Hard to overstate how important this is.
+
+Aging doesn't mean you decline if you train.
+
+This will save you from many chronic diseases.
+
+ 10.1152/japplphysiol.00061.2005
+[open](https://x.com/Mangan150/status/1970916234226225279)
+
+---
+
+Screens at night are a problem for sleep, but not for the reasons you think.
+
+I'm basically fully convinced that the available quality data suggests it has little to do with light exposure (blue or otherwise) and almost everything to do with simple procrastination.
+
+When you cut
+[open](https://x.com/DrAndyGalpin/status/1970665041553957035)
+
+---
+
+Cardiorespiratory fitness is highly associated with reduced mortality risk.
+
+Compared to the least fit, the top 2% in fitness had 70-80% lower risk across all ages, even in very old age.
+[open](https://x.com/Mangan150/status/1970817177889743194)
+
+---
+
+Top 2% is not difficult to achieve, equivalent to VO2max of ~48, which is good but not elite athletic level.
+
+Even a VO2max of ~35, which any regular and moderate exerciser could achieve, was associated with 50% lower risk compared to the least fit.
+[open](https://x.com/Mangan150/status/1970817179886166282)
+
+---
+
+No content found
+[open](https://x.com/Mangan150/status/1970812459801030945)
 
 ---
 
@@ -5890,319 +7660,96 @@ My client’s Sam story is a good illustration of the fact that when you get lea
 Your overall health improves, and sometimes it massively improves. 
 
 In Sam’s case, he got off 4 drugs prescription drugs after losing 80+ pounds.
-[open](https://x.com/Mangan150/status/1968750452511498545)
+[open](https://x.com/Mangan150/status/1970813066532053253)
 
 ---
 
-This is something everyone needs to hear today.
-[open](https://x.com/DudespostingWs/status/1968444856528785907)
+Periodic reminder that excess body fat is a serious problem, and that any appropriate definition of what it means to be healthy should include a clause about being lean and fit. It makes zero sense to focus on blood work alone without factoring in body fat and muscle.
+[open](https://x.com/Mangan150/status/1970460972214370405)
 
 ---
 
-Today's workout at age 70
+<15% body fat for men, <22% (or so) for women. DEXA is the gold standard for measurement.
 
-(yes I trained already today)
-
-hack squat
-pulldown
-chest press
-lateral raise
-seated row
-dips
-rear delt fly
-curls
-triceps pushdown
-rowing machine (metabolic finisher)
-
-all at one set to failure; total time 27 minutes
-
-sun, steak, and steel
-[open](https://x.com/Mangan150/status/1968652192165814421)
+Or just measure waist size, which should be <0.5 of your height. x.com/sandeep_gupta/…
+[open](https://x.com/Mangan150/status/1970811206932783605)
 
 ---
 
-If you think you need TRT to have a decent amount of muscle and <15% body fat
-
-you should probably look at social media less
-
-and train hard and eat right more.
-[open](https://x.com/Mangan150/status/1968646490961662290)
+I’m 100x more concerned about my body fat % and VO2Max than I am about whether or not my food is organic or grass-fed.
+[open](https://x.com/Mangan150/status/1970559334112182616)
 
 ---
 
-I take no joy in saying it, but I think this is exactly what’s been going on.
-[open](https://x.com/Mangan150/status/1968462310009159750)
+This is a bit crude but it’s been my experience working with nearly 1500 people 1-on-1 over the past 10 years:
+
+Most people dramatically underestimate how much excess fat they need to lose to get to a healthy weight.
+[open](https://x.com/Mangan150/status/1970306812378480773)
 
 ---
 
-Those of us who use the Internet like previous generations used books, journals and tutors are getting incredible value out of it, and improving our lives. 
+There’s a 1 in 83,000 chance of listerosis from eating deli meat during pregnancy, yet every woman and doctor repeats “don’t eat deli meat”
 
-But many people use the internet, and social media, to spend their time less wisely than it would be to watch Judge Judy.
-[open](https://x.com/Mangan150/status/1968463282802487805)
+For some reason, exercising caution with Tylenol is unwarranted.
 
----
-
-My client previously struggled to get results with both carnivore and keto.
-
-6 months into his @ManganCoaching coaching experience, he lost nearly 60 pounds, while traveling frequently. 
-
-As usual, this is happening in no more than 1 hour per week, exercise wise.
-[open](https://x.com/Mangan150/status/1968009410602733861)
+You’d think Tylenol was an essential vitamin with no alternatives.
+[open](https://x.com/BowTiedGatorDDS/status/1970471474130514228)
 
 ---
 
-At age 69, after getting nowhere with keto…
+I got into resistance training to build muscle.
 
-Tom decided to get personalized help to reclaim his health. 
-
-In 4 months, and never, ever exercising for more than 1 hour/week…
-
-Tom lost over 40 pounds working with me 1-on-1 at @ManganCoaching.
-[open](https://x.com/Mangan150/status/1968438779279995034)
+Then I stayed for the health.
+[open](https://x.com/Mangan150/status/1970541719721775182)
 
 ---
 
-There are many ways to produce fat loss and improve metabolic health. 
+Tylenol is all over my timeline. 
 
-And so when evaluating different methods,“does it work?” isn’t an especially good question. 
-
-A better question might be:
-
-Can I easily sustain this method to get results now, and keep results forever?
-[open](https://x.com/Mangan150/status/1968338172087316760)
+In my view, aspirin is a better, safer choice all around. Not medical advice.
+[open](https://x.com/Mangan150/status/1970494735539433724)
 
 ---
 
-Imagine there was a car that always got you from point A to point B, and never broke down. 
+Most successful people hire advisors, consultants, coaches, and so on…
 
-But in order to keep it that way, you had to drive hundred of miles away to purchase special washer fluid and 200 miles away to get special gas. Would you realistically do that forever?
-[open](https://x.com/Mangan150/status/1968353274731659363)
-
----
-
-A simple heuristic to assess a man’s health:
-
-Does he look good in a plain fitted t-shirt?
-[open](https://x.com/Mangan150/status/1968304490815348954)
+Because they don’t want to waste their most precious resource, time, in “trial and error land” when they could simply pay someone to help them.
+[open](https://x.com/Mangan150/status/1970199858985455806)
 
 ---
 
-People: "I need carbs to function"
-
-The same people at 2pm:
-[open](https://x.com/SamaHoole/status/1968035656820760891)
+It’s a measure of how much damage science experts have done to their reputations during covid (especially origins, but also modelling, masks, vaccine breakthroughs etc) that someone like me no longer automatically accepts their reassurances over Tylenol and autism.
+[open](https://x.com/mattwridley/status/1970355660790304922)
 
 ---
 
-Today is my Birthday,  I’m 67 years old When I was 55 I thought my tiredness, big belly and raised BP were all ‘just normal’ ageing, I’m 12 years older and they are all gone!! It was my diet!! 
-[open](https://x.com/lowcarbGP/status/1968211183380709740)
+It’s about the same when it comes to adults. 
+
+Just one example:
+
+The New York Times said that  (paraphrasing) obese men are under medicated, as if absence of weight loss drugs was the root cause.
+
+Clown world.
+[open](https://x.com/Mangan150/status/1970312474751570255)
 
 ---
 
-My new favorite wise old Greek guy quote:
+Somehow we have a world where people who push more drugs on kids are “pro-science heroes.” 
 
-“When health is absent, wisdom cannot reveal itself, art cannot manifest, strength cannot fight, wealth becomes useless, and intelligence cannot be applied.”
-
-—Herophilus
-[open](https://x.com/anomalie_blue/status/1968082518621688042)
+And people who argue for kids to take less drugs, eat healthy and play outside are “anti-science zealots.”
+[open](https://x.com/calleymeans/status/1970274202751209649)
 
 ---
 
-If you’re the kind of person who hasn’t stepped on a scale in a year, or five, my advice is to stop being a reality denier and take action.
-[open](https://x.com/Mangan150/status/1968112164050502082)
+Something like 80% of men and 50% of women need to lose about twice as much weight as they think they need to lose in order to eliminate risk as a result of excess body fat levels.
+[open](https://x.com/Mangan150/status/1970307451082915932)
 
 ---
 
-Employment.
-[open](https://x.com/GuruAnaerobic/status/1967985262283415950)
+I'd like to credit @Mangan150 for pointing this out 8 YEARS AGO with his excellent book "Dumping Iron"
 
----
-
-One of many ways to think about optimizing metabolic health:
-
-Distance from diabetes.
-[open](https://x.com/Mangan150/status/1967985077054550274)
-
----
-
-If you picture a straight line, at one end you’d have optimal metabolic health, followed by insulin resistance, followed by diabetes. Then you’d have type 2 diabetes in the middle. 
-
-And on the other side, you’d have more advanced cases, all the way to those requiring insulin.
-[open](https://x.com/Mangan150/status/1967986594113262061)
-
----
-
-So those who are in very poor metabolic health, currently requiring insulin, want to move closer to “better” diabetes, and eventually, past the middle and ideally, going all the way to the other end to get to / return to great metabolic health.
-[open](https://x.com/Mangan150/status/1967987011287126315)
-
----
-
-The most logical reason to (potentially) cut back on caffeine:
-[open](https://x.com/Mangan150/status/1967921101033574715)
-
----
-
-Presented without comment:
-[open](https://x.com/Mangan150/status/1967692765887860979)
-
----
-
-For those who struggle with anxiety:
-
-L-theanine, taurine, and magnesium are all helpful. 
-
-But cutting back on caffeine is probably the most helpful of all.
-[open](https://x.com/Mangan150/status/1967676408639230210)
-
----
-
-I hope it goes without saying but I’ll mention them anyway:
-
-Physical activity such as walking, at least enough not to be sedentary (~5000 steps daily) and intense exercise are very helpful too.
-[open](https://x.com/Mangan150/status/1967678862457966658)
-
----
-
-Most of the "influencers" in the health/fitness space overlook the key concepts of marginal benefit and diminishing returns. 
-
-As a result, many folks get overwhelmed, and end up doing nothing.
-
-That’s why I try to focus on the most important topic: 
-
-Getting lean and fit.
-[open](https://x.com/Mangan150/status/1967632160514506967)
-
----
-
-A lot of topics are interesting and worthy of our attention, but in my view, it's silly to worry about finer details unless the basics are covered, since the basics are what drive most of the results.
-[open](https://x.com/Mangan150/status/1967633710137872459)
-
----
-
-I was your client several years ago and have continued the healthy habits you taught me. My husband saw the results and how easy it was for me and he has transformed himself, as well. We can’t thank you enough!
-[open](https://x.com/Whodeychick/status/1967633093986242748)
-
----
-
-Since March, I have lost 60 pounds, and for the first time in many years, I feel like I am in control of my health. The primary thing I have learned is that you can only do it by changing your lifestyle and establishing new habits.  Following a strict diet and relying on
-[open](https://x.com/RevShark/status/1966827055657476258)
-
----
-
-Well, yes, actually I did
-[open](https://x.com/Mangan150/status/1967609815846572161)
-
----
-
-I’m not going to claim that poor metabolic health, poor hormonal health and poor body composition are THE root causes of all our societal ills, but I think it’s naive to deny they’re not SOME of the root causes.
-[open](https://x.com/Mangan150/status/1967359090478489698)
-
----
-
-“Personally I think the right should tone down the rhetoric.”
-[open](https://x.com/JoshRainerGold/status/1967253822780399671)
-
----
-
-100%
-[open](https://x.com/Mangan150/status/1967354945281376562)
-
----
-
-A health “white pill” many people could use:
-
-Many of the most common problems plaguing men and women today can be prevented, or reversed, with nothing but lifestyle tweaks and weight loss.
-[open](https://x.com/Mangan150/status/1967258354348364121)
-
----
-
-It honestly scares the crap out of me when I see doctors & nurses sharing the “I’m glad Charlie Kirk died” content.
-
-How would they treat me, a conservative man, if I was in need of critical care & couldn’t speak for myself?
-
-Imagine if I was unconscious and they happened read my
-[open](https://x.com/JoeyMannarinoUS/status/1967201600037925321)
-
----
-
-Healthcare is one of the most woke professions, both in its dogma and many people who work there.
-
-Something to keep in mind if you seek treatment for anything.
-[open](https://x.com/Mangan150/status/1966936448839631046)
-
----
-
-Well done! I am down 47 in the same period
-[open](https://x.com/nnzp1730/status/1966839135869558994)
-
----
-
-Mindset matters a lot. And so does being honest with ourselves about our goals and priorities.
-[open](https://x.com/Mangan150/status/1966841205016457444)
-
----
-
-We’ve got just over 100 days left in 2025. 
-
-75 days until Thanksgiving. 
-
-Let’s get after it.
-[open](https://x.com/Mangan150/status/1966819963278159909)
-
----
-
-Universities have been one of the finest institutions we've ever created.
-
-But in the modern era they're a cesspit of lies, corruption, and communism.
-
-Time to return them to their true mission, which is the advancement of learning, science, and civilization.
-[open](https://x.com/Mangan150/status/1966641523065581759)
-
----
-
-One of the most significant developments in our treatment of the mentally ill was when we began hiring them as school teachers.
-[open](https://x.com/profontheright/status/1966571448018899145)
-
----
-
-Cancelling people who support murder is perfectly moral and legitimate.
-[open](https://x.com/ZubyMusic/status/1966582401124970897)
-
----
-
-It’s about time because Big Pharma advertising is bad news for society. 
-
-No media organization is going to objectively cover harm done by one of their largest advertisers, without whom they might have not even be in business.
-[open](https://x.com/Mangan150/status/1966576513471381640)
-
----
-
-SSRI use among deranged leftists must be off the charts.
-[open](https://x.com/Mangan150/status/1966537383236554869)
-
----
-
-A lack of focus will hurt you way more than a lack of smarts.
-[open](https://x.com/danmartell/status/1966520966596501938)
-
----
-
-A lot of people mislabel a commitment problem, or a bad/unsustainable strategy problem, as a willpower/discipline problem. 
-
-Don’t make this kind of mistake if you care about your health.
-[open](https://x.com/Mangan150/status/1966523188373803200)
-
----
-
-If there are two effective solutions to a health problem, and one of them doesn’t involve drugs or a medical intervention, my view is that it’s always better to go the lifestyle way.
-[open](https://x.com/Mangan150/status/1966504920724512958)
-
----
-
-There are, of course, emergency situations where taking a drug that can provide a speedy fix is a no brainer. 
-
-A hypertensive emergency is perhaps the best example.
-[open](https://x.com/Mangan150/status/1966506485535420925)
+Bros are always ahead
+[open](https://x.com/AJA_Cortes/status/1970253530666803431)
 
 ---
 
@@ -6210,179 +7757,280 @@ A hypertensive emergency is perhaps the best example.
 
 # nntaleb
 
-This is a huge deal: Saudi Arabia now in a Nato-like Islamic alliance with Pakistan (who has the bomb) and, of couse, part of the League of Friends of China.
------
-Next: Egypt.  Soon, informally, Turkey.
-[open](https://x.com/nntaleb/status/1968956029757968693)
+All rumors are false until officially denied.
+[open](https://x.com/nntaleb/status/1972355309009318131)
 
 ---
 
-The Qatar thing was the biggest possible mistake the U.S. could make there.
-[open](https://x.com/nntaleb/status/1968990391060811853)
+Predictably: this is a reminder that immigration works only in small quantities; even when the people look superficially the same.
+[open](https://x.com/nntaleb/status/1972311343261950014)
 
 ---
 
-Netanyahu: ‘These So-Called Genocide Experts Have Probably Never Committed A Genocide In Their Lives’
-[open](https://x.com/TheOnion/status/1968736898383282621)
+That is entirely backwards.
+The Levant was the most stable area in the world between early 1800s and 1948, with squirmishes in 1860. Compare to Europe's devastating wars; 1803-15, 1833, 1846, 1848, 1853, 1870, 1897, 1914, 1939.
+[open](https://x.com/nntaleb/status/1972307501715800461)
 
 ---
 
-An Israeli Christian bought a house in a Jewish neighborhood in Israel, which caused a violent mob attack against him and his newly purchased home.
-
-Some claim Israel is the best place for Christians, but that is fiction.
-[open](https://x.com/KhalilJeries/status/1968721529430032724)
-
----
-
-New series from @EmpirePodUK 
-THE HISTORY OF GAZA
-[open](https://x.com/DalrympleWill/status/1968665041281966495)
+Assuming that "ancestry" (both Podhoretz & Mileikowsky) is true (it's not), over 2000 y one has (w/no recombination) 1/1.2 10^24 ancestors, that is: 1 in
+1 septillion, 208 sextillion, 925 quintillion, 819 quadrillion, 614 trillion, 629 billion, 174 million grandparents!
+Retard.
+[open](https://x.com/nntaleb/status/1972301292375826834)
 
 ---
 
-I am monstrously impressed! Unlike your finance idiot, Grok gets the nuances!
-[open](https://x.com/nntaleb/status/1968685394913886318)
+... which is why one must look at autosomal.
+[open](https://x.com/nntaleb/status/1972301683859526004)
 
 ---
 
-Lifestyle always helps.
-Medications often kill.
-Every medication has its side effects; no exceptions were found (so far).
-[open](https://x.com/nntaleb/status/1968596708176072953)
+Note: If you saturate near the size of the effective population his lines come from, if the world was ~2.5×1082.5×108 people c. 0 AD, & his ancestry effectively draws from a r fraction of that 
+r=0.05: ~12.5 million
+r= 0.2: ~50 million
+r=0.4: ~100 million
+Still No cigar.
+[open](https://x.com/nntaleb/status/1972304470475420063)
 
 ---
 
-Oof.
-[open](https://x.com/HarrisonHSmith/status/1968320031445729606)
+I hope the legend who made this is having a wonderful day 
+[open](https://x.com/AdameMedia/status/1972155398443749410)
 
 ---
 
-After the Sultan's reacquisition of Syria, it is entirely natural to dream of getting Palestine back, though as a vassal state.
-[open](https://x.com/nntaleb/status/1968383582118015094)
+Bethlehem remained a Christian majority area through Islamic rule in the Middle Ages, the Ottoman era, and the British mandate. The Christian population began plummeting after the 1967 war and the start of the Israeli occupation.
+[open](https://x.com/DecampDave/status/1972162835963957614)
 
 ---
 
-.@grok List prominent investment managers or strategists who called for a tactical "blow-off top" (or similar) in the stock market back in 2022 or 2023 and held that view through the market dips of 2024 & 2025--to be explicitly followed later by a crash. Include those not on X
-[open](https://x.com/nntaleb/status/1968371674929316216)
+This is the new Hasbara 2025: spread posts on social media by retards portraying Israel as the Western defense against Islam.
+[open](https://x.com/nntaleb/status/1972051742725697543)
 
 ---
 
-"Independent arms industry" that has been built through billions of dollars in direct subsidies from US tax payers
-[open](https://x.com/YousefMunayyer/status/1968026739092889878)
+I am optimistic about the following.
+Indicted war criminal Netanyahu is still using his Hasbara v. 1971. Censorship & propaganda work only when invisible, as we learned from the Soviet Union.
+
+Furthermore, things work in reverse: if fuels conspiracy theories.
+[open](https://x.com/nntaleb/status/1971931079604162857)
 
 ---
 
-New revision.
-[open](https://x.com/nntaleb/status/1968261070054932617)
+Netanyahu bullshitting an empty room. There are two types of delegates 1) Those who know he is bullshitting but have some professional interest in staying in the room (slaves); 2) Those who know he is bullshitting but have left the room.
+[open](https://x.com/nntaleb/status/1971725834794016870)
 
 ---
 
-Minority Rule in Action: moral disgust is explosively contagious.
-
-Then Norway Sweden Finland Denmark... last will be UK France and Hungary.
-[open](https://x.com/nntaleb/status/1968179323594211731)
+Going to Café de Flore for food (let alone onion soup) is the equivalent of going to Mar-a-Lago to discuss Kant, Algazel, & other topics of some philosophical depth.
+[open](https://x.com/nntaleb/status/1971318598594347340)
 
 ---
 
-This isn't just any report by a fringe organization: this is the United Nations - which, lest you forget, under the Charter signed by the entire world is supposed to represent the ultimate international legal authority - now officially saying that Israel is committing genocide.
-[open](https://x.com/RnaudBertrand/status/1967915423917392094)
+As an Israeli who grew up in a stolen Palestinian home, I fully support the right of return. The mere idea that Palestinians should be kept from their homeland because of their ethnicity while any Jew is allowed in is racist and abhorrent. Let Palestinians return home.
+[open](https://x.com/academic_la/status/1971296001790284029)
 
 ---
 
-Fucking hell
-[open](https://x.com/SaadMaan15/status/1967498535928320032)
+Updated on Amazon. Added a total of 50 pages.
+
+https://amazon.com/dp/B0CD8X5YC5?ref_=pe_93986420_774957520…
+[open](https://x.com/nntaleb/status/1971299852958171323)
 
 ---
 
-I just published The World in Which We Live
-[open](https://x.com/nntaleb/status/1967478646182166963)
+This cyclist friend of mine who asks me to post on X on his behalf (he is shy) got a call from the lover of the now married ex-mistress of his dermatologist  to let him know that he is going to vote against Trump at the midterm elections.
+He will also take Tylenol next accident.
+[open](https://x.com/nntaleb/status/1971220827350970710)
 
 ---
 
-Devastating new investigation by Dutch newspaper De Volkskrant: 15 international doctors report at least 114 Palestinian children with single gunshot wounds to head/chest—injuries forensic experts say are consistent with aimed fire.
-
-(Photo: Mira, 4 years old)
-[open](https://x.com/rcbregman/status/1966832611432824964)
+These @FortuneMagazine  idiots got it backwards. My point was that bike lanes contribute to IMPROVEMENT in well-being and happiness WITHOUT generating economic growth.
+[open](https://x.com/nntaleb/status/1971202824144027846)
 
 ---
 
-Squid ink
-[open](https://x.com/nntaleb/status/1967288568747024581)
+I am one of the originial Christians. I am horrified at these attempts to market their wicked anachronistic project (theocratic ethnic cleansing/settler colonialism) as a defense of Christianity against... Islam.
+
+Palestinian Christians have been their biggest victims.
+[open](https://x.com/nntaleb/status/1971179999245082794)
 
 ---
 
- BREAKING!  At least 114 Palestinian children were killed in Gaza with SINGLE GUNSHOT to head/chest, consistent with shooting aimed to kill. A genocide unfolding everyday under our eyes.  Will Israel ever be held accountable? And when will the killing machine be stopped?
-[open](https://x.com/FranceskAlbs/status/1967214129720238302)
+Nice story that Netanyahu (origin Mileikovski) "descends from ancient Israelites"; @DineshDSouza should ask Netanyahu for a DNA report. Some of us who do science can help interpreting it.
+[open](https://x.com/nntaleb/status/1970956991964250494)
 
 ---
 
-The World in Which We Live Now.
-7 Points. Lecture at the Ron Paul Institute Annual Meeting.
-Thanks @DanielLMcAdams
-[open](https://x.com/nntaleb/status/1966963169940943176)
+Keep your friends close and your enemies closer.
+[open](https://x.com/nntaleb/status/1970949236352278533)
 
 ---
 
-CORRECTED
-[open](https://x.com/nntaleb/status/1966975642718589327)
+Incidentally, there is a Palestinian branch of the Abela (now in Lebanon), descending from a Maltese medical doctor who happened to be part of Napoleon's 1799 expedition to Egypt and ended up in Acre. I wonder if Robert Abela knows this.
+[open](https://x.com/nntaleb/status/1970945669457379398)
 
 ---
 
-Predictably
-[open](https://x.com/nntaleb/status/1967189046591201355)
+For the past 9m every time I've seen Trump or any of his myrmidons making an economics statement has prompted me to buy gold-- irresistibly. The solution may be to block all news except for bicycle information. I need to reduce.
+[open](https://x.com/nntaleb/status/1970844674777649455)
 
 ---
 
-La corda a forza di tirarla si rompe
-حبيبك من عسل ما تلحسو كلو
-
-Only traders proverb on the risks of going too far: bulls make money, bears make money, pigs get slaughtered.
-[open](https://x.com/nntaleb/status/1967188342279417948)
+They proved untrustworthy in ALL negotiations with Lebanon, which includes all parties, (even their Christian allies in 1982 summarily betrayed when they switched sides and backed Druze militias). Unreliable & unwise.
+[open](https://x.com/nntaleb/status/1970834797468770636)
 
 ---
 
-New Term: OCCIDOCRACY, rule by murder
+MEDICAL QUESTION DUJOUR
+If ancient populations had a high incidence of cardiovascular disease, which includes hunter gatherers and inuit marine-fed pops (ar. 40% at only 43 median age at death), the unavoidable conclusion is that cardio problems are at least half genetic.
 
-Regimes that survive through systematic assassination as a primary political tool; operating through terror and elimination of any perceived enemies.
-[open](https://x.com/nntaleb/status/1966961206130077913)
-
----
-
-No not from Occident but OCCIDERE, killing in Latin.
-[open](https://x.com/nntaleb/status/1967112345295220838)
+This
+[open](https://x.com/nntaleb/status/1970819311729098908)
 
 ---
 
-"I never trust what people say about their friends. I trust what they say about their enemies."
-@nntaleb
-[open](https://x.com/MoZarrinsadaf/status/1966792544798285862)
+The fucking idiot @APompliano  doesn't get that it is exactly the reverse. Spitz has been bullish for 3 years.
+Nuances are too difficult for electronic tulip peddlers.
+[open](https://x.com/nntaleb/status/1970533839798980799)
 
 ---
 
-Open to the public.
-[open](https://x.com/nntaleb/status/1966785692349964553)
+Lifetime observation: the fancier the restaurant, the fewer the smiles—and even fewer the laughs.
+[open](https://x.com/nntaleb/status/1970492345914134654)
 
 ---
 
-The Nazi Holocaust wasn’t live-streamed. The Gaza Holocaust is:
-[open](https://x.com/aaronjmate/status/1966721236257341756)
+The Palestinians are human.
+[open](https://x.com/cenkuygur/status/1970280380826538211)
 
 ---
 
-Erasing history.
-[open](https://x.com/nntaleb/status/1966755950225731888)
+PHILOLOGY DUJOUR
+"Antisemitism" is a misnomer, visibly Palestinians are vastly more "Semitic" than Netanyahu (origin Mileikovski).
+Term shd be Judeophobe, just like Islamophobe & Christophobe.
+Once one uses this label, it is put back in its context as a form of specific bigotry.
+[open](https://x.com/nntaleb/status/1970242152446705959)
 
 ---
 
-Talking about "illegal" immigrants?
-Practically EVERY settler (many U.S. born) in the West Bank and East Jerusalem is an illegal immigrant, according to international law and according to the US pre-Trump.
-I am not including what took place in 1948.
-[open](https://x.com/nntaleb/status/1966526057030320141)
+The World in Which We Live 
+(Trying Substack)
+https://open.substack.com/pub/nntaleb/p/the-world-in-which-we-live?r=4jdrj&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true…
+[open](https://x.com/nntaleb/status/1970200965065383983)
 
 ---
 
-A reminder.
-[open](https://x.com/nntaleb/status/1966519553187332589)
+Focusing on aging & the physical brain (particularly age-related shrinkage) is misleading. These reductionistas are missing the idea of experience, improvement in using your brain (which has overcapacity).
+The car may degrade with time, but the driver gets better.
+[open](https://x.com/nntaleb/status/1970189016126611853)
+
+---
+
+"Markets are perverse; they trap people."
+Note: The entire article misses the point that Spitz has been bullish past 3 years. Nuances are not for journos.
+[open](https://x.com/nntaleb/status/1970145759178969133)
+
+---
+
+Friends, I am still using Medium (effortless to post) but a lot of people are recommending Substack. Any reason? Any censorship in one of the platforms?
+[open](https://x.com/nntaleb/status/1970064890212610085)
+
+---
+
+Over a lifespan I’ve observed that people who are petty, argumentative, narrowly competitive, envious, & grudging tend to—actually, always—fail professionally, in spite of occasional lucky breaks. They also fail in their marriages.
+[open](https://x.com/nntaleb/status/1970064125720932596)
+
+---
+
+The “Hezbollah “ members assassinated by Israel today in south of Lebanon. All with dual Us-Lebanese nationality.
+[open](https://x.com/ejmalrai/status/1969820521819754748)
+
+---
+
+Life is dynamic, not static.
+[open](https://x.com/nntaleb/status/1969896642959872505)
+
+---
+
+Israel just massacred a whole family in Lebanon. A father and his children killed by an Israeli drone. The mother is in critical condition. A baby pacifier is all that’s left 
+[open](https://x.com/HadiNasrallah/status/1969784077826805815)
+
+---
+
+Friends, the 3rd Edition of Statistical Consequences of Fat Tails is up: adds 3 chapters and an appendix on Max Entropy distributions (includes Tsallis Entropy). One chapter discusses the forecasting masquerades of @PTetlock & others.
+[open](https://x.com/nntaleb/status/1969762471134081380)
+
+---
+
+Every day the Israeli right helpfully reminds us over & over that that this is not just mass slaughter, it is really intended to be annihilation & genocide. But most of the world's media refused to use the G word & continues to provide cover for "our democratic Israeli allies"
+[open](https://x.com/DalrympleWill/status/1969714372818923829)
+
+---
+
+Not just The Black Swan; this weekend, Antifragile is on the NYT bestseller list, 13 years later.
+#Lindy
+[open](https://x.com/nntaleb/status/1969680485413535744)
+
+---
+
+Insane how many bots Israel is setting up on social media. Netanyahu said the other day they are spending hundreds of millions with these bots impersonating real users. Why I blocked comments by the way
+[open](https://x.com/MacaesBruno/status/1969490052456857754)
+
+---
+
+Huckabee doesn't know Scripture. God didn't give any specific land to Abraham. There is no Bible verse saying "those who bless Israel will be blessed". And "the stones cry out" is a misquote and misappropriation of Luke 19: 40. 
+
+What a total joke he is.
+[open](https://x.com/Frances_Coppola/status/1969306701531672895)
+
+---
+
+Squid ink with #RWRI instructors @trishankkarthik @TMessi_002
+[open](https://x.com/nntaleb/status/1969484956834398666)
+
+---
+
+We must do everything possible to keep @MassieforKY in the House!!!
+[open](https://x.com/DanielLMcAdams/status/1969060534155616734)
+
+---
+
+"The first step in liquidating a people is to erase its memory. Destroy its books, its culture, its history. Then have someone write new books, manufacture a new culture, invent a new history. Before long the nation will begin to forget what it is and what it was.”
+Milan Kundera
+[open](https://x.com/DalrympleWill/status/1969394227575734788)
+
+---
+
+The retard doesn't get that:
+1- The R^2 => only 11% contribution to variance, impossible to observe in a single person.
+2- When you use nonlinear curves, the R^2 has no more meaning (multiple testing) & no longer unique least square.
+3- Psych Journals are not rigorous (e.g. IQ)
+[open](https://x.com/nntaleb/status/1969161730929328334)
+
+---
+
+Nonlinear curves are not unique. Linear ones are for a given distance minimization.
+Psychiatrists shd be banned from producing statistical data.
+[open](https://x.com/nntaleb/status/1969364622265233665)
+
+---
+
+Here @stephen_wolfram  accurately points out that scientists that come up with new ideas & frameworks are more often the experienced ones, not the young as we tend to believe.
+[open](https://x.com/nntaleb/status/1969150385521639647)
+
+---
+
+No.
+[open](https://x.com/nntaleb/status/1969140827835273650)
+
+---
+
+NEW WORD
+"TAMBASIARE was a verb that he liked, it meant wandering from room to room without a precise purpose, indeed occupying oneself with trivial things."
+
+It is like flâneur-ing but not necessarily outside your office.
+[open](https://x.com/nntaleb/status/1969042089078915331)
 
 ---
 
@@ -6390,16 +8038,8 @@ A reminder.
 
 # friedberg
 
-Google DeepMind CEO Demis Hassabis on AI, Creativity, and a Golden Age of Science
-
-(0:00) Introducing Sir Demis Hassabis, reflecting on his Nobel Prize win
-
-(2:39) What is Google DeepMind? How does it interact with Google and Alphabet?
-
-(4:01) Genie 3 world model
-
-(9:21) State of
-[open](https://x.com/theallinpod/status/1966622172752805945)
+as a kid who used to spend all night on south park studios this is surreal
+[open](https://x.com/shayne_coplan/status/1971045810369593838)
 
 ---
 
@@ -6407,75 +8047,162 @@ Google DeepMind CEO Demis Hassabis on AI, Creativity, and a Golden Age of Scienc
 
 # chamath
 
-I think this video was 2013 or thereabouts.
-
-around this same time i became convinced that everyone should have 1% of their net worth in bitcoin. essentially, my logic was that bitcoin could be good tail risk insurance against a major financial blowup as everything became
-[open](https://x.com/chamath/status/1968719867630207313)
+This week in America, All In is #1 in Tech, we have 3 shows in the top 12 and are #13 overall.
+[open](https://x.com/chamath/status/1972338710780969418)
 
 ---
 
-It's incredibly intimidating to walk into the Oval Office.  
+Oof. 
 
-The first time I did it, I was really nervous. I didn't say much, I was very pensive. In part, it was because despite hearing about it on the news or seeing it on TV or replicas in the movies, none of it really does
-[open](https://x.com/chamath/status/1968390799277838761)
+The Labour Party’s intellectual justification of this is flimsy. It’s even more concerning since they seem to have married this idea to a naive understanding of how the economy works. The journalist does a good job in exposing this. 
 
----
-
-Groq will be a $100B+ company if it doesn’t get acquired beforehand. 
-
-Excited for v2 which should ship soon!
-[open](https://x.com/chamath/status/1968353709433462856)
+To implement this kind of program
+[open](https://x.com/chamath/status/1972322693971402882)
 
 ---
 
-This was a surprise banger.
-[open](https://x.com/chamath/status/1967996480507281862)
+What I read this week...
+
+1) OpenAI and NVIDIA announced a strategic partnership to deploy 10 gigawatts of NVIDIA AI systems over the next several years, with NVIDIA committing up to $100 billion in phased investment. 
+
+This ties OpenAI to NVIDIA’s roadmap of the Vera Rubin
+[open](https://x.com/chamath/status/1972036903932514390)
 
 ---
 
-Jason sets a really good example here.
+3) In a milestone for neurology, uniQure’s experimental gene therapy, AMT-130, demonstrated a statistically significant slowing of disease progression in a Phase I/II clinical trial.
 
-Go to the source material and hear it for yourself. 
-
-There are thousands of hours of Charlie Kirk on YouTube and X speaking on all manner of topics. Through it, you can understand who Charlie was from his own words versus through some
-[open](https://x.com/chamath/status/1967965816890298435)
+The trial suggested that high-dose patients had up to 75% slower decline than matched controls
+[open](https://x.com/chamath/status/1972036907225026910)
 
 ---
 
-No content found
-[open](https://x.com/chamath/status/1967962668503126143)
+Further reading on my substack: https://chamath.substack.com/p/what-i-read-this-week-e9d…
+[open](https://x.com/chamath/status/1972036908625940951)
 
 ---
 
-Harvard is rotten top to bottom.
-[open](https://x.com/chamath/status/1967784583333912680)
+This is a dangerous and slippery slope for the UK…
+[open](https://x.com/chamath/status/1971925165648105936)
 
 ---
 
-Tulsi Gabbard on Russiagate Hoax Evidence and How She’s Reforming Politicized Intelligence Agencies
+Most of the world’s GDP and revenues are from companies that aren’t in Silicon Valley.
 
-(0:00) Introducing Tulsi Gabbard, US Director of National Intelligence
+They can’t, and won’t simply “move fast and break things”. They would rather “go slow to go fast” or “be accurate and right the first time”. 
 
-(1:21) The Russiagate Hoax Conspiracy and the dangers of highly politicized intelligence agencies
-
-(17:31)
-[open](https://x.com/theallinpod/status/1967735073328787734)
+Today’s AI tools are largely meant to build
+[open](https://x.com/chamath/status/1971921914894717154)
 
 ---
 
-If this trend doesn’t improve, it will pit the “old” versus the “young” across the West. 
-
-It’s not sustainable for young people to pay into an entitlement system so older folks can live a better life than they can ever expect.
-
-This may be the spark that drives the entitlement
-[open](https://x.com/chamath/status/1967028664819945792)
+Pod up!
+[open](https://x.com/chamath/status/1971787434536194483)
 
 ---
 
-Important read…
+A quick update on 8090 and our Software Factory. We've been in a controlled release through our Alpha waitlist and it was going well so we decided to let everyone from the waitlist in over the past few weeks and move through a beta phase...
 
-“And they blame you. Because, even if you’re just a center-of-the-road liberal, you lacked the courage to police your own ranks. You let modern-day Maoist red guards run loose across every facet of society, and what started with social-media struggle sessions
-[open](https://x.com/chamath/status/1967023894914826650)
+...the traffic and usage was
+[open](https://x.com/chamath/status/1971654909088211251)
+
+---
+
+Groq has an entirely American supply chain and our chips are made in America. 
+
+Thank you for your attention to this matter!
+[open](https://x.com/chamath/status/1971567928488403328)
+
+---
+
+I spent time with Blackstone’s Global Head of Real Estate, Nadeem Meghji, today. 
+
+I came away really excited about the scale of data center, energy and infrastructure development that the world will need and how we can work together to do it. 
+
+I was also really impressed with
+[open](https://x.com/chamath/status/1971362367356489953)
+
+---
+
+Groq can be an important company around the world. Glad Sunny came…
+[open](https://x.com/chamath/status/1971285064664379457)
+
+---
+
+Either humanity wins or the algorithms will…
+[open](https://x.com/chamath/status/1970570975252250991)
+
+---
+
+In the future, there will be a quasi-infinite amount of compute and power that will look to revolutionize every industry of the global economy through AI. 
+
+I was so impressed with Sheikh Tahnoon’s vision for this future and the role of the UAE in it. 
+
+I’m excited to come back
+[open](https://x.com/chamath/status/1970478336397742307)
+
+---
+
+Continuously, at the core of every important societal moment, is an immoral media that sows division. 
+
+They used to hold truth to power. 
+
+Their main focus now, however, is to manufacture hate so they can shape the fallout.
+[open](https://x.com/chamath/status/1969865164964122836)
+
+---
+
+A reminder that total consumer electricity costs are (1) the cost to make it and (2) the cost to transmit and distribute it. 
+
+The cost of making electricity keeps falling but the overall costs keep rising because of (2). 
+
+If you would like to get off this hamster wheel go to
+[open](https://x.com/chamath/status/1969768873143742596)
+
+---
+
+What I Read This Week...
+
+1) Oracle entered their largest deals in its history with OpenAI and TikTok.
+
+First, Oracle has locked in a $300 billion, five-year cloud infrastructure deal with OpenAI. This deal starts in 2027 as part of the previously announced Project Stargate data
+[open](https://x.com/chamath/status/1969451131064762811)
+
+---
+
+3) The Bureau of Labor Statistics’ preliminary benchmark revision published September 9, 2025 revealed that from April 2024 to March 2025 nonfarm employment is now estimated to be 911,000 jobs fewer than previously reported. While benchmark revisions are a standard annual
+[open](https://x.com/chamath/status/1969451135099683298)
+
+---
+
+More on substack... https://chamath.substack.com/p/wirtw-250920
+[open](https://x.com/chamath/status/1969451136928399674)
+
+---
+
+2) @adcock_brett announced that Figure just closed a $1 billion Series C at a $39 billion post-money valuation, led by Parkway Venture Capital with participation from Brookfield, NVIDIA, Intel, LG, Salesforce, T-Mobile, and others. This is a significant jump from its February
+[open](https://x.com/chamath/status/1969451132880896117)
+
+---
+
+Besties are back for an important discussion.
+
+-- Charlie Kirk Murder
+-- Assassination Culture in America
+-- Jimmy Kimmel Suspended
+-- Ellison Media Empire
+
+(0:00) Reacting to Charlie Kirk's death: impact, legacy, and what's wrong in America
+
+(15:27) Assassination culture in
+[open](https://x.com/theallinpod/status/1969171682263785578)
+
+---
+
+Your rhetoric is so corrosive because you sneakily never use words like “earn” or “reward”. Instead you always favor helplessness words like “give”. 
+
+In everything you say, it’s clear you hate personal agency - it is always about the invisible hand of big brother coming to the
+[open](https://x.com/chamath/status/1969054549131555156)
 
 ---
 
@@ -6483,492 +8210,13 @@ Important read…
 
 # Jason
 
-If you’re a YCombinator reject, email me your application and let’s talk yc@launch.co
-[open](https://x.com/Jason/status/1968029220300525931)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1968930136398467450)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1968927252738887709)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1968924960308473986)
-
----
-
-There will be times when the struggle seems impossible. I know this already. Alone, unsure, dwarfed by the scale of the enemy.
-
-Remember this, Freedom is a pure idea. It occurs spontaneously and without instruction. Random acts of insurrection are occurring constantly throughout
-[open](https://x.com/Jason/status/1968923924244103539)
-
----
-
-This is not the "iPhone moment."
-
-Your friends are not going to buy the new Meta glasses with displays. Neither will mine.
-
-It is, rather, the "Macintosh 1.0" moment."
-
-People who are early adopters and developers will buy them. But they are a product still searching for "the
-[open](https://x.com/Scobleizer/status/1968804968800067715)
-
----
-
-this is a very respectful discussion.... X SPACES are great for these debates.
-[open](https://x.com/Jason/status/1968802923262992810)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1968796612429287618)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1968779989530357772)
-
----
-
-That was an emotional and important taping — pod will drop tomorrow as always 
-
-Hopefully, on our best episodes, we demonstrate productive debate and friendship
-[open](https://x.com/Jason/status/1968771298609213834)
-
----
-
-All In podcast pre-game
-[open](https://x.com/Jason/status/1968728199275102540)
-
----
-
-Comedians are going to have a field day with the 47th administration going full censorship… 
-
-can’t wait for the rest of the @SouthPark season, @joerogan and @TimJDillon pods  
-
-
-[open](https://x.com/Jason/status/1968716345249263722)
-
----
-
-This hit a nerve
-[open](https://x.com/Jason/status/1968711770119291169)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1968709163086709091)
-
----
-
-Release the Epstein files
-[open](https://x.com/Jason/status/1968708859901390858)
-
----
-
-Not everyone on the right is bending the knee to censorship. 
-
-Take notes now, as we are about to see who the principled real ones are, and who are the scared little sycophantic Wormtongues.
-[open](https://x.com/Jason/status/1968681148927664522)
-
----
-
-People I strongly agree with today: Karl Rove, Tucker Carlson, Charlie Kirk and Glenn Greenwald
-[open](https://x.com/Jason/status/1968678012418654213)
-
----
-
-Well said @ggreenwald
-[open](https://x.com/Jason/status/1968676256905351636)
-
----
-
-Love it! Respect! 
-
-Demo or die, as is the tradition! 
-
-NO CANNED DEMOS
-[open](https://x.com/Jason/status/1968496622884495847)
-
----
-
-The @StephenAtHome and @jimmykimmel podcast is going to make $20m in year one… in five years make more than their network shows if they do it 2-3x a week.
-[open](https://x.com/Jason/status/1968481876995100792)
-
----
-
-Executives at ABC, like those at CBS, wanted to fire these money-losing late-night franchises for years  — Trump has given them the cover they need. 
-
-When it was wildly profitable to back these same comedians a decade ago, the networks had no problem letting them mock our
-[open](https://x.com/Jason/status/1968480882559164610)
-
----
-
-It was great discussing home robots, laundry and actuators with @Jason and @alex on @twistartups!
-[open](https://x.com/kaandogrusoz/status/1968461886300848320)
-
----
-
-Interesting how similar the Biden and Trump administrations have turned  out to be: cancel culture, Orwellian censorship, never ending wars, executive power overreach, out of control spending and divisive partisanship.
-[open](https://x.com/Jason/status/1968461072219648356)
-
----
-
-Censorship by Biden on social media or Trump on late-night is the same thing — un-American.
-[open](https://x.com/Jason/status/1968460144024437035)
-
----
-
-This does feel possible, but on a longer timeline
-[open](https://x.com/Jason/status/1968457708710887818)
-
----
-
-Welcome to the Knicks 
-[open](https://x.com/Jason/status/1968457305097175083)
-
----
-
-Bucket list!
-[open](https://x.com/Jason/status/1968456182617522351)
-
----
-
-Please stop objectifying my hot new dad bod
-[open](https://x.com/Jason/status/1968455959249916247)
-
----
-
-Banger
-[open](https://x.com/Jason/status/1968453119731171816)
-
----
-
-We are banning AI after all
-[open](https://x.com/Jason/status/1968452630696362319)
-
----
-
-Wow, cancel culture is back
-[open](https://x.com/Jason/status/1968451450285015235)
-
----
-
-Give dara @uber a pay package based on stock price and revenue milestones 
-
-He’s grossly underpaid right now 
-
-Give him a path to 5% ownership in ten years
-[open](https://x.com/Jason/status/1968434952950698242)
-
----
-
-Uber CEO Dara Khosrowshahi on self-driving's future, changing business model, job displacement, and much more
-
-(0:00) Introducing Uber CEO Dara Khosrowshahi
-
-(0:59) Uber’s self-driving business: partnerships, market size, LiDAR vs computer vision, safety, distribution
-
-(8:14) How
-[open](https://x.com/theallinpod/status/1968425507856502820)
-
----
-
-I was holding the camera, since the camera operator got sick last minute.
-[open](https://x.com/Jason/status/1968431169332003063)
-
----
-
-NEWS: Uber Freight has partnered with @Tesla to introduce a Semi truck accelerator program.
-
-"This first-of-its-kind buyer’s program is designed to make electric freight more affordable and accessible by addressing key adoption barriers.
-
-This new program provides fleets with a
-[open](https://x.com/SawyerMerritt/status/1968041885412257876)
-
----
-
-Would love to understand the cap table of the TikTok post divestiture -- jason@allin.com if you have insights (off the record/on background OK).
-[open](https://x.com/Jason/status/1968407958682792145)
-
----
-
-cap table would be great
-[open](https://x.com/Jason/status/1968408003154997500)
-
----
-
-Is this real? 
-[open](https://x.com/Jason/status/1968397892353441819)
-
----
-
-TWiST Live:  TikTok’s US Deal, China vs Nvidia, OpenAI Teen Safety
-[open](https://x.com/Jason/status/1968362305118482830)
-
----
-
-People forget more value was created by YC rejects than successful YC applicants
-[open](https://x.com/michael_chomsky/status/1968149185120932244)
-
----
-
-Iconic
-[open](https://x.com/Jason/status/1968149726584508492)
-
----
-
-Reducing staff with AI, robots and offshoring, dramatically increases profitability 
-
-When Amazon starts shedding 10,000 factory workers and drivers a month their stock will skyrocket — and we’re gonna have some serious social issues if we’re not careful 
-
-If you work at Amazon
-[open](https://x.com/Jason/status/1968147909372723434)
-
----
-
-Exceptional @maxrichtermusic on my @FocalOfficial UTOPIAS and @qobuz (you can get them on @HeadphoneDotCom )  
-[open](https://x.com/Jason/status/1968146339344294332)
-
----
-
-Since AI is the most important and disruptive technology of all time, there’s a strong argument that states should get to decide how it’s implemented — not the President. 
-
-Since we wouldn’t want President @AOC or @BernieSanders to set this policy, we shouldn’t let EVEN the
-[open](https://x.com/Jason/status/1968102915677053328)
-
----
-
-Trump Slump is very real… despite ATH for gold, alts, stocks, homes etc — your theories? 
-[open](https://x.com/Jason/status/1968100813601198158)
-
----
-
-Waymo wasn’t at fault in this tragedy, but this is an important reminder that job one for all autonomous vehicles is safety.
-[open](https://x.com/Jason/status/1968081807670383049)
-
----
-
-Huge partnership by the two best in class players — this will lead to massive utilization! 
-
-Feels like the start of something beautiful 
-[open](https://x.com/Jason/status/1968071955463966750)
-
----
-
-The consistent reply I've gotten on Charlie Kirk is his quote about black women and their intelligence, as it relates to affirmative action. 
-
-It's from his podcast. Here is the exact quote (link in reply tweet). You can decide if you think it's spicy, racist, based or rude.
-
-"If
-[open](https://x.com/Jason/status/1968060651709890799)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1968060653706547488)
-
----
-
-Correct.
-
-These individuals exist in their own dark reality that doesn't conform to political parties.
-[open](https://x.com/Jason/status/1968054032083325174)
-
----
-
-Oh… an Uber and Tesla partnership   
-[open](https://x.com/Jason/status/1968049529858691427)
-
----
-
-Exactly
-[open](https://x.com/Jason/status/1968047428046819681)
-
----
-
-Excited to share a throwback that still means a lot to me.
-
-Back when we were at $500 MRR and just got turned down by YC again, I saw a tweet from @Jason Calacanis asking founders to send over their apps. Sent ours in. A few days later Andre reached out and I ended up joining
-[open](https://x.com/gjdaniel99/status/1968012547589562562)
-
----
-
-My sleeper for summit 2025
-[open](https://x.com/Jason/status/1968026144781078927)
-
----
-
-Live September 16 https://x.com/i/broadcasts/1nAKEElBZBoKL…
-[open](https://x.com/Jason/status/1967997306290180510)
-
----
-
-Completely reasonable that a journalistic enterprise doesn’t want its writers and reporters to tee off on controversial issues on their social media accounts. 
-
-Beyond their safety and reputation concerns, which are reasonable, if a writer has interesting opinions, that energy
-[open](https://x.com/Jason/status/1967991427243114525)
-
----
-
-Jason sets a really good example here.
-
-Go to the source material and hear it for yourself. 
-
-There are thousands of hours of Charlie Kirk on YouTube and X speaking on all manner of topics. Through it, you can understand who Charlie was from his own words versus through some
-[open](https://x.com/chamath/status/1967965816890298435)
-
----
-
-Made me smile
-[open](https://x.com/Jason/status/1967827695632597057)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1967803846744477749)
-
----
-
-Ok, I’ve watched 40 Charlie Kirk videos at this point… none of them were outrageous. 
-
-His opinions were the exact same as the Catholics I grew up with (and was one) 
-
-I disagree with many of those traditional beliefs, but none are shocking… in fact, they’re extremely
-[open](https://x.com/Jason/status/1967801438618165622)
-
----
-
-SIG p365 is a great daily… so slim you forget you’re even carrying
-[open](https://x.com/Jason/status/1967766305513382153)
-
----
-
-I’m only OWB on the ranch 
-
-I have IWB holster as well
-[open](https://x.com/Jason/status/1967800378348786073)
-
----
-
-What are we doing folks?!?
-[open](https://x.com/Jason/status/1967798419130552427)
-
----
-
-#ballsandstrikes 
-[open](https://x.com/FaryarG/status/1967791505009160699)
-
----
-
-No content found
-[open](https://x.com/Jason/status/1967747756388401428)
-
----
-
-I’ve been busy working, someone please catch me up on what’s going on with cancel culture right now
-[open](https://x.com/Jason/status/1967746690217283956)
-
----
+No content found for this user.
 
 ---
 
 # DavidSacks
 
-The FCC angle was fake news.
-
-Will all of the lowlifes who spread this willful lie apologize?
-[open](https://x.com/Cernovich/status/1968865928755446119)
-
----
-
-.@MrsErikaKirk just posted this in Instagram and I want everyone possible to see it so I’m posting it here too:
-
-You loved witnessing excellence.
-It’s why you loved sports so much. You loved watching the best of the best perform at the level of greatness God intended for them.
-[open](https://x.com/AndrewKsway/status/1968504059398357363)
-
----
-
-There was major news from China in the AI race this week:
-1. Huawei introduced a new AI chip to compete with Nvidia.
-2. The Chinese government instructed Chinese companies to stop buying certain Nvidia AI chips.
-
-Taken together, the message is clear: China is not desperate for
-[open](https://x.com/DavidSacks/status/1968619522484543756)
-
----
-
- WOW! JD Vance just CALLED IT LIKE IT IS: “This is a person [who] was radicalized by the far LEFT and got so far down the path of radicalization that he killed my friend [Charlie Kirk]! That is not a 'BOTH SIDES' problem.”  
-
-“My friend is DEAD because of
-[open](https://x.com/EricLDaugh/status/1968414369894568002)
-
----
-
-It's incredibly intimidating to walk into the Oval Office.  
-
-The first time I did it, I was really nervous. I didn't say much, I was very pensive. In part, it was because despite hearing about it on the news or seeing it on TV or replicas in the movies, none of it really does
-[open](https://x.com/chamath/status/1968390799277838761)
-
----
-
-Just before the All-In Summit, President Trump did us the honor of showing us around the Oval Office.
-[open](https://x.com/DavidSacks/status/1968385326252179824)
-
----
-
-“Had Charlie Kirk been a Democrat and done what he did in service of, say, Barack Obama, he would have been among the most venerated, celebrated, profiled, championed people in America.”
-
-@MarkHalperin on how Charlie Kirk became an American icon without ever receiving the
-[open](https://x.com/NextUpHalperin/status/1968056587664363785)
-
----
-
-This should be an easy proposition for Republicans to get behind — unless they would prefer that Gavin Newsom sets the rules instead of President Trump.
-[open](https://x.com/DavidSacks/status/1968005591512846572)
-
----
-
-Full article:
-[open](https://x.com/DavidSacks/status/1968005810170236986)
-
----
-
-JASON: “Trump literally asked Putin to release Hillary's email”
-
-SACKS: “He made a joke about it … Everybody laughed and you have to be kind of dumb or super-partisan or hate Donald Trump to think that him telling a joke on stage was the basis for a grand conspiracy with Russia”
-[open](https://x.com/TheChiefNerd/status/1967931023754400084)
-
----
-
-MUST WATCH: @VP powerfully delivers some hard truths on political violence in America.
-
-"While our side of the aisle certainly has its crazies, it is a statistical FACT that most of the lunatics in American politics today are proud members of the Far Left."
-[open](https://x.com/RapidResponse47/status/1967652535679721576)
-
----
-
-Victor Davis Hanson weighs in on the tragic loss of Charlie Kirk, offering his analysis of its implications for America's future. A must-watch for those seeking to understand the shifting landscape of political and media influence. #WeAreCharlieKirk
-[open](https://x.com/FreyjaTarte/status/1967212860217684300)
-
----
-
-The assassination of Charlie Kirk is bringing out some of the best in humanity and it’s also exposing some of the worst. The unification, love, support, and outcry on his behalf throughout the world is heartwarming. The number of people supporting Tyler Robinson’s appalling
-[open](https://x.com/PhilMickelson/status/1967281731360407594)
-
----
-
-Only a despicable Silicon Valley leftist would seek to downplay the meaning and significance of Charlie’s death as millions of people around the world understand it and experience it on a deep and visceral level. https://x.com/paulg/status/1/paulg/status/1967088969986044238…
-[open](https://x.com/DavidSacks/status/1967337783720341789)
-
----
+No content found for this user.
 
 ---
 
